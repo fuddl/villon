@@ -13,5 +13,5 @@ Im Übrigen erhebe ich mit meiner Publikation nach keiner Seite hin den Anspruch
 
 Ich widme dieses, im Sommer 1914 begonnene und Frühjahr 1929 abgeschlossene, Werk meinen Freunden Eddy Smith und Karl Vogt.
 
-Berlin im März 1930
+Berlin im März 1930  
 Paul Zech
