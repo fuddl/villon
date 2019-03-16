@@ -4,7 +4,7 @@
 ¶ Es ist ein Trost, daß noch der Himmel grün und bleich  
 im Wasser liegt und Bäume um den Teich  
 so dicht herumgebogen sind  
-Man zicht sich aus, und schmeißt das müde Fleisch  
+Man zieht sich aus, und schmeißt das müde Fleisch  
 den Fischen hin. Und oben stolpert das Gekreisch  
 der Krähen durch den Wind  
 Cylaca hatte eine Höllenangst vor jedem Tier,  
