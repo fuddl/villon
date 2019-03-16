@@ -1,4 +1,4 @@
-# Inhaltsverzeichnis
+## Inhaltsverzeichnis
 
 |   |                                                      |  Seite |
 |---|------------------------------------------------------|-------:|
