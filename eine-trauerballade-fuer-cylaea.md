@@ -7,7 +7,7 @@ so dicht herumgebogen sind
 Man zieht sich aus, und schmeißt das müde Fleisch  
 den Fischen hin. Und oben stolpert das Gekreisch  
 der Krähen durch den Wind  
-Cylaca hatte eine Höllenangst vor jedem Tier,  
+Cylaea hatte eine Höllenangst vor jedem Tier,  
 sie war mein schönstes, und ihr Herz, das fand ich hier.
 
 ¶ Ich fand es hier an einem Sommertag,  
