@@ -1,6 +1,4 @@
-<60>
-
-## Die Sommer Ballade<br />von der armen Lovize
+# Die Sommerballade
 
 ¶ Lovize die stand am Herd den langen Tag  
 und ihr Gesicht war schon ganz schwarz vom Rauch.  
@@ -27,8 +25,9 @@ und wollte schöner noch als Bäume sein im Sommerwind.
 sich wie der Hauch auf einem Rosenblatt.  
 Und viele Wochen lang verstand sie nicht,  
 wozu der Herr den Mann erschaffen hat.  
-Sie war nur armer Leute Waisenkind  
-<61> und wollte lieber sein ein Baum im Sommerwind.
+Sie war nur armer Leute Waisenkind
+
+ und wollte lieber sein ein Baum im Sommerwind.
 
 ¶ Der Sommerwind ging hin mit Kriegsgeschrei  
 und färbte in der Nacht den Himmel rot.  
@@ -57,3 +56,4 @@ und machte mit dem alten Sommertraum
 und ihrer grauen Armut endlich Schluß.  
 Sie war nur armer Leute Waisenkind  
 und wollte nie mehr sein ein Baum im Sommerwind.
+
