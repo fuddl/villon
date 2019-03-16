@@ -35,7 +35,7 @@
 |   | Vierzeiler                                           | 115    |
 |   | Appell an den Reichstag                              | 116    |
 |   | Die Ballade von den Galgenbrüdern                    | 118    |
-|   | Kleine Ballade von der Mäusefrau                     | 110    |
+| * | Kleine Ballade von der Mäusefrau                     | 110    |
 |   | Die Galgenballade                                    | 122    |
 |   | Ballade um Verzeihung                                | 125    |
 |   | Die Marienballade                                    | 127    |
