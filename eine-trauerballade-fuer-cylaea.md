@@ -26,7 +26,7 @@ das sah man ihr verdammt nicht an,
 sie hatte bis zum Nabel oben schwarzes Haar  
 und, ganz versteckt darin, die Muschel für den Mann.  
 Es ist uns ganz egal, was ihr von unserer Liebe denkt;  
-<63>fürs Kindermachen wird kein Mann gehenkt  
+<63>fürs Kindermachen wird kein Mann gehenkt.
 
 ¶ Nun hat den Franz das Luder doch genarrt  
 Ach, ohne ihren Mund schläfts sich im Gras so hart.  
