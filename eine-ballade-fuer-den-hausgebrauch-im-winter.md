@@ -1,5 +1,3 @@
-<56>
-
 # Eine Ballade für den Hausgebrauch im Winter
 
 ¶ Franz Villon sagt: das bin ich,  
@@ -29,7 +27,7 @@ seinen Tobak und verträgt ihn schlecht.
 
 ¶ Hängt zu guterletzt noch gar  
 eine Larve sich in das Gesicht.  
-Alles, was an ihm natürlich war <57>  
+Alles, was an ihm natürlich war   
 stäubt zu Asche in dem trüben Licht.
 
 ¶ Aber Franz der sagt:  
@@ -60,9 +58,9 @@ hängt sich das Geziefer in sein Haar.
 ¶ Immer, wenn der Schnee noch da  
 auf den Feldern schwimmt,  
 sing ich zur Harmonika;  
-und mein Mädchen meint: es stimmt, 
+und mein Mädchen meint: es stimmt,
 
-¶ was ich dann und wann <58>  
+¶ was ich dann und wann   
 ihr geflüstert habe vor dem Schlaf,  
 und sogar als müder Mann  
 noch ins Schwarze traf.
@@ -94,10 +92,11 @@ kaum zurück noch, wenn der Tag sich jährt.
 
 ¶ Viele Höllen mußte er  
 noch erleben, eh die Freiheit kam.  
-Und sie lief nicht mehr so nebenher <59>  
+Und sie lief nicht mehr so nebenher   
 als er sie in seine Arme nahm.
 
 ¶ Mit den Jahren freilich wird das Blut  
 auch bei ihm so naß und kalt  
 Und dann hängt er einfach seinen Hut  
 an den nächsten Ast im Wald.
+
