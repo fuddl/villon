@@ -29,7 +29,7 @@ seinen Tobak und verträgt ihn schlecht.
 
 ¶ Hängt zu guterletzt noch gar  
 eine Larve sich in das Gesicht.  
-Alles, was an ihm natürlich war <57>
+Alles, was an ihm natürlich war <57>  
 stäubt zu Asche in dem trüben Licht.
 
 ¶ Aber Franz der sagt:  
