@@ -37,7 +37,7 @@ wird dann mein Herz die grünen Seufzer los.
 Man kommt sonst auf den Hund, und kriegt zuletzt  
 bei jedem Weib den Schemel vor die Tür gesetzt.
 
-## Dies ist der Wachſatz, <br>den ich beinah verſchluckt hätte
+## Dies ist der Nachſatz, <br>den ich beinah verſchluckt hätte
 
 ¶ Im Sommer soll man möglichst sich vom Wind  
 weit durch die Wälder treiben lassen  
