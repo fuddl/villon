@@ -43,4 +43,16 @@ zu seinem Untertan herab, und denkt wie ich:
 daß alle Menschen groß und klein  
 am Ende sollen Brüder sein.
 
-![Nachbildung einer Tertseite der 1. Ausgabe. Paris 1489.](.gitbook/assets/villon.svg)
+<a name="88"></a>![Nachbildung einer Tertseite der 1. Ausgabe. Paris 1489.](.gitbook/assets/villon.svg)
+
+> Coment Bifon Boit asonaouiela
+> belle seheaulmiecesoy cöpsainant.
+
+> Abuis meftqueiop regretter
+> La beflequi fut heaulmicre
+> Sopieune fille souhaicter
+> t patler en cefte maniere
+> ha Viellessefelonneet fiere
+> pout quop mae fitoftabatue
+> Duime tient qui:que ne me siere
+> Etqueace coupic neme tue
