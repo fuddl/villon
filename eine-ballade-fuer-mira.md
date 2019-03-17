@@ -1,6 +1,6 @@
 <67>
 
-# Eine Ballade gedichtet für Mira ????
+# Eine Ballade gedichtet für Mira l՚Ydolle
 
 ¶ Am Abend standen alle Bäume grau und krank  
 im Wald herum, weil in dem Wiesengrund der Tag ertrank.  
