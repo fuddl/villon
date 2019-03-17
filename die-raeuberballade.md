@@ -1,6 +1,4 @@
-<82>
-
-# Eine kleine Räuber⸗Ballade<br />von den drei Coquillards
+# Die Räuberballade
 
 ¶ An einem grauen Regentag  
 hat uns der Hauswirt ausquartiert,  
@@ -25,8 +23,9 @@ und alles, was da mit ihm fuhr,
 war furchtbar aufgeregt vor Schreck  
 Sie sagten, daß man uns auf tausend Schritt  
 schon riechen kann, es gäb hier nichts zu erber,  
-und was man uns vom Brot abschnitt,   
-<83>das war zu viel für ihrer Drei zum Sterben.
+und was man uns vom Brot abschnitt,
+
+das war zu viel für ihrer Drei zum Sterben.
 
 ¶ Der Bauer stiehlt dem Herrn das Brot,  
 dem Bauer stiehlt es der Baron.  
@@ -53,3 +52,4 @@ Wir aber rochen schon auf tausend Schritt
 den Höllenpfuhl, da gab es nichts zu erben  
 Denn wo im Feld die rote Sichel schnitt,  
 da waren Männer nie genug zum Sterben.
+

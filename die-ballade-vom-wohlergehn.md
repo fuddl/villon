@@ -1,6 +1,4 @@
-<84>
-
-# Die Ballade vom Wohlergehn<br/>auf dieſer elenden Welt…
+# Die Ballade vom Wohlergehn
 
 ¶ Er hat ein Bett, und hat auch Feuer im Kamin  
 und manchmal reitet hin und her auf seinen Knien  
@@ -26,8 +24,9 @@ auf daß vom Baum nicht weit der Apfel fällt.
 Und in dem Apfel wohnen schon die Würmer drin,  
 damit er nicht zu lange sich am Stengel hält,  
 und dabei kommt der Spruch ihm in den Sinn —:  
-Mensch, frag nicht lang was morgen wird geschehen,  
-<85> nur wer im Heute lebt, dem wird es wohlergehn.
+Mensch, frag nicht lang was morgen wird geschehen,
+
+ nur wer im Heute lebt, dem wird es wohlergehn.
 
 ¶ Es geht auf dieser grauen Elendwelt  
 wohl gar nichts ohne Sorgen um das Geld.  
@@ -37,3 +36,4 @@ die Schläuche füllt, und hinterher noch ein
 vergnügtes Weibchen hält in seinem Arm,  
 dann kann die Welt getrost zugrunde gehn,  
 nur wer sie nicht mehr nötig hat, dem wird es wohlergehn.
+

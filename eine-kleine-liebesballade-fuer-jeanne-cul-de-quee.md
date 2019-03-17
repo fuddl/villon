@@ -1,6 +1,4 @@
-<77>
-
-# Eine kleine Liebesballade gedichtet für Jeanne<br /> Cul de Quée
+# Eine kleine Liebesballade für Jeanne Cul de Quée
 
 ¶ Im Sommer war das Gras so tief,  
 daß jeder Wind daran vorüberlief.  
@@ -28,3 +26,4 @@ warum solls auch bei uns nicht sein?
 Du bleibst im Winter auch mein rotes Reh  
 und wenn es tausend schönere gibt…  
 Ich hab mich in dein rotes Haar verliebt.
+

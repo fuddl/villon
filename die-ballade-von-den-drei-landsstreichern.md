@@ -1,5 +1,6 @@
-<64>
-# Die Ballade<br/> von den drei Landsstreichern
+# Die Ballade von den drei Landsstreichern
+
+## Die Ballade  von den drei Landsstreichern
 
 ¶ Sie kamen alle drei von Flandern her,  
 der Jean, der Jack und Nicola.  
@@ -26,8 +27,9 @@ das Messer gleich im Halse saß.
 die schmolzen auch in Glück und Branntwein hin.  
 Sie wußten nicht, daß es der Mond war, welcher sah,  
 wohin der Jude fiel, und wer sich am Gewinn  
-beteiligt hat. Es schien der Mond die lange Nacht  
-<65> so rot, und hat es an den Tag gebracht.
+beteiligt hat. Es schien der Mond die lange Nacht
+
+ so rot, und hat es an den Tag gebracht.
 
 ¶ Der Jean, der Jack und Nicola:  
 als sie den Henker sahen groß und rot:  
