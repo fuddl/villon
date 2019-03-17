@@ -1,4 +1,4 @@
-<86>
+[Seite 86](#seite-86)
 
 # Eine nette Ballade,<br /> Villon dem König aus der Verbannung ſandte
 
@@ -27,7 +27,7 @@ Sieh her, am Knie ein Loch: so groß
 wie eine Faust… Wer bin ich bloß
 daß ich zu Mist und Aas  
 verdammt bin? Ich, Villon aus Groß-Paris,  
-<87>Professor einst, und Herr vom goldnen Vließ.
+[Seite 87](#seite-87)Professor einst, und Herr vom goldnen Vließ.
 
 ¶ … mein Bruder, hör: wozu bist du so stolz  
 auf einen Thron gesetzt, wenn du wie Holz  
@@ -45,4 +45,4 @@ zu seinem Untertan herab, und denkt wie ich:
 daß alle Menschen groß und klein  
 am Ende sollen Brüder sein.
 
-
+![Nachbildung einer Tertseite der 1. Ausgabe. Paris 1489.](.gitbook/assets/villon.svg)
