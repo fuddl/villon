@@ -1,6 +1,4 @@
-[Seite 86](#seite-86)
-
-# Eine nette Ballade,<br /> Villon dem König aus der Verbannung ſandte
+# <a name="86"></a>Eine nette Ballade,<br /> Villon dem König aus der Verbannung ſandte
 
 ¶ Ich, Franz Villon, ein Dichter und Vagant,  
 Franzose und verbannt aus meinem Vaterland:  
@@ -27,7 +25,7 @@ Sieh her, am Knie ein Loch: so groß
 wie eine Faust… Wer bin ich bloß
 daß ich zu Mist und Aas  
 verdammt bin? Ich, Villon aus Groß-Paris,  
-[Seite 87](#seite-87)Professor einst, und Herr vom goldnen Vließ.
+<a name="87"></a>Professor einst, und Herr vom goldnen Vließ.
 
 ¶ … mein Bruder, hör: wozu bist du so stolz  
 auf einen Thron gesetzt, wenn du wie Holz  
