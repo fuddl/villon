@@ -36,5 +36,5 @@ Und habe doch das rote Tier so tief
 erfahren, als ich bei dir schlief.  
 Wär nur der Winter erst vorbei  
 und wieder grün der Wiesengrund !  
-…ich bin so wild nach deinem Erdbeermund
+…ich bin so wild nach deinem Erdbeermund.
 
