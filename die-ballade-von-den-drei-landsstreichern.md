@@ -3,7 +3,7 @@
 
 ¶ Sie kamen alle drei von Flandern her,  
 der Jean, der Jack und Nicola.  
-Der PHaumenbaum warf keinen Schatten mehr  
+Der Pflaumenbaum warf keinen Schatten mehr  
 und auf dem Feld war schon der böse Winter da.  
 Sie haben sich im Feld ein Feuer angemacht,  
 und, weil grad wer vorüberkam, ihn umgebracht.
