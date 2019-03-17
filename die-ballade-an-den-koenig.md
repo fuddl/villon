@@ -1,4 +1,6 @@
-# Die Ballade an den König
+<86>
+
+# Eine nette Ballade,<br /> Villon dem König aus der Verbannung ſandte
 
 ¶ Ich, Franz Villon, ein Dichter und Vagant,  
 Franzose und verbannt aus meinem Vaterland:  
@@ -22,10 +24,10 @@ soll das mein Leben lang dein Wille sein?
 nur diesen Rock; der ist geklaut  
 und stinkt nach Muff und Mottenfraß  
 Sieh her, am Knie ein Loch: so groß  
-wie eine Faust… Wer bin ich bloß daß ich zu Mist und Aas  
-verdammt bin? Ich, Villon aus Groß-Paris,
-
-Professor einst, und Herr vom goldnen Vließ.
+wie eine Faust… Wer bin ich bloß
+daß ich zu Mist und Aas  
+verdammt bin? Ich, Villon aus Groß-Paris,  
+<87>Professor einst, und Herr vom goldnen Vließ.
 
 ¶ … mein Bruder, hör: wozu bist du so stolz  
 auf einen Thron gesetzt, wenn du wie Holz  
@@ -43,5 +45,4 @@ zu seinem Untertan herab, und denkt wie ich:
 daß alle Menschen groß und klein  
 am Ende sollen Brüder sein.
 
-![Nachbildung einer Tertseite der 1. Ausgabe. Paris 1489.](.gitbook/assets/villon-woodcut.svg)
 

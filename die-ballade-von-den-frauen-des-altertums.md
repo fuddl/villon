@@ -1,4 +1,6 @@
-# Die Ballade von den Frauen des Altertums
+<70>
+
+# Die Ballade <br />von den Frauen des Altertums
 
 ¶ Nun die Bäume wieder Blüten schnein,  
 denk ich oft: wo mag jetzt Flora sein,  
@@ -24,9 +26,8 @@ einmal nur mit ihr durchs Kleefeld gehn,
 bis ich Nimmersatt gesättigt bin!  
 Ach, wohin ist es entlohn das Reh,  
 daß ich nirgend eine Spur mehr seh;  
-all die frohen Schäferstunden:
-
- wie der Schnee sind sie dahingeschwunden.
+all die frohen Schäferstunden:  
+<71> wie der Schnee sind sie dahingeschwunden.
 
 ## Lehrreiche Nachschrift
 
@@ -34,4 +35,3 @@ all die frohen Schäferstunden:
 frag nicht, welchen Mann sie jetzt begehrt,  
 sonst sind all die frohen Schäferstunden  
 wie der Schnee vom Vorjahr hingeschwunden.
-

@@ -1,4 +1,6 @@
-# Eine Ballade für Mira
+<67>
+
+# Eine Ballade gedichtet für Mira l՚Ydolle
 
 ¶ Am Abend standen alle Bäume grau und krank  
 im Wald herum, weil in dem Wiesengrund der Tag ertrank.  
@@ -26,4 +28,3 @@ zurück im weißen Kleid: Bald bin ich alt
 und wie die Bäume krank und leer…  
 Und könnte sein, wie einst im weißen Licht:  
 dein Nachtgemahl mit Wurzelhaar und Tiergesicht.
-

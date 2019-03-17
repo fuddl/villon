@@ -1,6 +1,5 @@
-# Die Ballade vom schlechten Lebenswandel
-
-## Die Ballade vom schlechten  Lebenswandel
+<74>
+# Die Ballade vom schlechten<br /> Lebenswandel
 
 ¶ Seid was ihr wollt: Soldaten, Schuster, Opernsänger,  
 Produktenhändler oder auch nur Hundefänger,  
@@ -28,4 +27,3 @@ wenn sie verfault bei Aas und Maden liegen
 und denkt: wer jetzt die Lust verliert,  
 der wog bei Weibern, Wein und Kartenspiel  
 nicht einen Pappenstiel.
-

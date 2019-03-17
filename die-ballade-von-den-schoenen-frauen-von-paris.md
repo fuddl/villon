@@ -1,4 +1,6 @@
-# Die Ballade von den schönen Frauen von Paris
+<80>
+
+# Die Ballade<br /> von den ſchönen Frauen von Paris
 
 ¶ Schöne Frauen gibt es überall  
 auf der weit und breiten Erdenwelt,  
@@ -16,7 +18,7 @@ in der Steppe und vom Kaukasus
 bis zum Nil und Amazonenstrom  
 sind die Frauen wild nach einem Kuß.  
 Auch in Preußen, Holland und Madrid,  
-\(Eskimo und Lappen zählen mit!\)  
+(Eskimo und Lappen zählen mit!)  
 wird von früh bis Mitternacht geküßt.  
 Aber daß ihr auch noch dieses wißt:  
 Keine Frau auf Erden küßt so süß,  
@@ -24,9 +26,8 @@ wie die schönen Frauen von Paris.
 
 ¶ Selbst die Fraun im grauen Altertum:  
 Königin von Saba, Niobe,  
-Dalila, Astarte, und der Ruhm
-
-der Lucinde, Sappho, Kandacé,  
+Dalila, Astarte, und der Ruhm  
+<81>der Lucinde, Sappho, Kandacé,  
 Helena, Lacmé und Potiphar,  
 muß verblassen und ins Nichts zergehn  
 wie der weiße Schnee, der gestern war  
