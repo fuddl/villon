@@ -1,6 +1,4 @@
-<77>
-
-# Eine kleine Liebesballade gedichtet für Jeanne<br /> Cul de Quée
+# <a name="77"></a>Eine kleine Liebesballade gedichtet für Jeanne<br /> Cul de Quée
 
 ¶ Im Sommer war das Gras so tief,  
 daß jeder Wind daran vorüberlief.  

@@ -1,5 +1,4 @@
-<66>
-# Vierzeiler an Margot <br />den der Villon seiner Kleinen Margot schrieb
+# <a name="66"></a>Vierzeiler an Margot <br />den der Villon seiner Kleinen Margot schrieb
 
 ¶ Daß ich mit vielerlei Figuren deinen Leib  
 beschrieben habe und zum Zeitvertreib  

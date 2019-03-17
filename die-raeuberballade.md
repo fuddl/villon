@@ -1,6 +1,4 @@
-<82>
-
-# Eine kleine Räuber⸗Ballade<br />von den drei Coquillards
+# <a name="82"></a>Eine kleine Räuber⸗Ballade<br />von den drei Coquillards
 
 ¶ An einem grauen Regentag  
 hat uns der Hauswirt ausquartiert,  
@@ -26,7 +24,7 @@ war furchtbar aufgeregt vor Schreck
 Sie sagten, daß man uns auf tausend Schritt  
 schon riechen kann, es gäb hier nichts zu erber,  
 und was man uns vom Brot abschnitt,   
-<83>das war zu viel für ihrer Drei zum Sterben.
+<a name="83"></a>das war zu viel für ihrer Drei zum Sterben.
 
 ¶ Der Bauer stiehlt dem Herrn das Brot,  
 dem Bauer stiehlt es der Baron.  

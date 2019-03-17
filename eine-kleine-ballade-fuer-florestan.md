@@ -1,6 +1,4 @@
-<68>
-
-# Eine kleine Ballade vom Prinzen Florestan
+# <a name="68"></a>Eine kleine Ballade vom Prinzen Florestan
 
 ¶ Wenn heute nacht im Apfelbaunm  
 die Nachtigall ihr Silber spinnt,  
@@ -32,7 +30,7 @@ und schick es deiner Mutter hin,
 vielleicht denkt sie an unser Bett zurück  
 und weiß, von wem ich Vater bin.
 
-<69>¶ Und zeigt dir auch das Muttermal,  
+<a name="69"></a>¶ Und zeigt dir auch das Muttermal,  
 das ich ihr in die Brust gebissen hab.  
 Und wenns der König sieht, ists auch egal  
 zerbricht man über mir den Stab.

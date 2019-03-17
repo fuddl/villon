@@ -1,6 +1,4 @@
-<80>
-
-# Die Ballade<br /> von den ſchönen Frauen von Paris
+# <a name="80"></a>Die Ballade<br /> von den ſchönen Frauen von Paris
 
 ¶ Schöne Frauen gibt es überall  
 auf der weit und breiten Erdenwelt,  
@@ -27,7 +25,7 @@ wie die schönen Frauen von Paris.
 ¶ Selbst die Fraun im grauen Altertum:  
 Königin von Saba, Niobe,  
 Dalila, Astarte, und der Ruhm  
-<81>der Lucinde, Sappho, Kandacé,  
+<a name="81"></a>der Lucinde, Sappho, Kandacé,  
 Helena, Lacmé und Potiphar,  
 muß verblassen und ins Nichts zergehn  
 wie der weiße Schnee, der gestern war  

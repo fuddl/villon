@@ -1,6 +1,4 @@
-<78>
-
-# Eine verliebte Ballade<br /> für Ysabeau d'Aussigny
+# <a name="78"></a>Eine verliebte Ballade<br /> für Ysabeau d'Aussigny
 
 ¶ Ich bin so wild nach deinem Erdbeermund,  
 ich schrie mir schon die Lungen wund  
@@ -27,7 +25,7 @@ hast nur den roten Mund noch aufgespart
 für mich so tief im Haar verwahrt…  
 Ich such ihn schon die lange Nacht  
 im Wintertal, im Aschengrund…  
-<79>Ich bin so wild nach deinem Erdbeermund.
+<a name="79"></a>Ich bin so wild nach deinem Erdbeermund.
 
 ¶ Im Wintertal, im schwarzen Erdbeerkraut,  
 da hat der Schnee sein Nest gebaut  

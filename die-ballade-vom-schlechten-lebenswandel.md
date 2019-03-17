@@ -1,5 +1,4 @@
-<74>
-# Die Ballade vom schlechten<br /> Lebenswandel
+# <a name="74"></a>Die Ballade vom schlechten<br /> Lebenswandel
 
 ¶ Seid was ihr wollt: Soldaten, Schuster, Opernsänger,  
 Produktenhändler oder auch nur Hundefänger,  

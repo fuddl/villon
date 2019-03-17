@@ -1,6 +1,4 @@
-<75>
-
-# Die Ballade<br/> von der schönen Stadt Moorah
+#<a name="75"></a> Die Ballade<br/> von der schönen Stadt Moorah
 
 ¶ Und als ich in die schöne Stadt rein fuhr  
 weil sie so lang und breit am Wasser liegt  
@@ -28,7 +26,7 @@ noch lang herab auf unser Nest im Kraut;
 und schließlich wollte sie, daß dieser Traum  
 nur ihr gehör und keiner anderen Braut.  
 Da sagte ich zu ihr:  
-<76>was ewig dauert, macht mir kein Pläsier.
+<a name="76"></a>was ewig dauert, macht mir kein Pläsier.
 
 ¶ Und als ich wieder aus der Stadt rausfuhr,  
 nach mir da gingen die Soldaten auch,  

@@ -1,6 +1,4 @@
-<70>
-
-# Die Ballade <br />von den Frauen des Altertums
+# <a name="70"></a>Die Ballade <br />von den Frauen des Altertums
 
 ¶ Nun die Bäume wieder Blüten schnein,  
 denk ich oft: wo mag jetzt Flora sein,  
@@ -27,7 +25,7 @@ bis ich Nimmersatt gesättigt bin!
 Ach, wohin ist es entlohn das Reh,  
 daß ich nirgend eine Spur mehr seh;  
 all die frohen Schäferstunden:  
-<71> wie der Schnee sind sie dahingeschwunden.
+<a name="71"></a> wie der Schnee sind sie dahingeschwunden.
 
 ## Lehrreiche Nachschrift
 

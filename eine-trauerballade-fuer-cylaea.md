@@ -1,5 +1,4 @@
-<62>
-# Eine Trauer-Ballade <br>um meine treuloſe Freundin Cylaea
+# <a name="62"></a>Eine Trauer-Ballade <br>um meine treuloſe Freundin Cylaea
 
 ¶ Es ist ein Trost, daß noch der Himmel grün und bleich  
 im Wasser liegt und Bäume um den Teich  
@@ -26,7 +25,7 @@ das sah man ihr verdammt nicht an,
 sie hatte bis zum Nabel oben schwarzes Haar  
 und, ganz versteckt darin, die Muschel für den Mann.  
 Es ist uns ganz egal, was ihr von unserer Liebe denkt;  
-<63>fürs Kindermachen wird kein Mann gehenkt.
+<a name="63"></a>fürs Kindermachen wird kein Mann gehenkt.
 
 ¶ Nun hat den Franz das Luder doch genarrt  
 Ach, ohne ihren Mund schläfts sich im Gras so hart.  

@@ -1,6 +1,4 @@
-<72>
-
-# Die Ballade von den Vogelfreien
+# <a name="72"></a>Die Ballade von den Vogelfreien
 
 ¶ Vor vollen Schüsseln muß ich Hungers sterben,    
 am heißen Ofen frier ich mich zu Tod  
@@ -28,7 +26,7 @@ ich, überall verehrt und angespien
 daß mir sehr bald die ganze Welt gehört,  
 und stehn mir wirklich alle Türen offen,  
 schlag ich sie wieder zu, weil es mich stört:  
-<73> daß ich aus goldenen Schüsseln fressen soll.  
+<a name="73"></a> daß ich aus goldenen Schüsseln fressen soll.  
 Die Würmer sind schon toll nach meinem Bauch,  
 ich bin mit Unglück bis zum Halse voll  
 und bleibe unter dem Holunderstrauch,  
