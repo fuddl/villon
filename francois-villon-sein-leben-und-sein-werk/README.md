@@ -3,14 +3,12 @@
 # François Villon / Leben, Werk und Wertung
 
 > „Villon sut le premier, dans ces siècles grossiers
-> Débrouiller l'art confus de nos vicux romanciers.‘’
-
-Boileau
+> Débrouiller l'art confus de nos vicux romanciers.‘’  
+> — Boileau
 
 > „Peu de Villons en bon scavoir
-> Trop de Villons pour decevoir.“
-
-Climent Marot
+> Trop de Villons pour decevoir.“  
+> — Climent Marot
 
 Der Dichter, den wir hier in voller Lebensgröße vorführen, ist
 einer von den Abseitigen, einer von den großen Desperados,
