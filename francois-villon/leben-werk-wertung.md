@@ -274,6 +274,32 @@ sechs Wochen den gräflichen Sitz soweit renoviert, daß man
 ohne Not sogar den König empfangen und bewirten konnte.
 Die beiden verliebten Leute dachten aber vorläufig noch nicht da
 ran, dekorative Gesellschaften zu geben, sondern gaben sich ihren
-<a name="14"></a>
+<a name="15"></a>animalischen Brünsten mit einer wahren Besessenheit hin. Selt­samer
+Weise hatte das Fräulein dem Meister Villon aber ver­schwiegen,
+daß sie auch mit dem Bischof ein kleines Schäfer
+verhältnis hatte. Die Zeit der jungen grünen Liebe war bei
+dem hohen geistlichen Herrn zwar längst abgekühlt, aber so
+alle zwei, drei Monate mußte Fräulein Helaine den Tribut doch
+noch entrichten, und als sie in der Rage mit dem viel netteren
+François den Termin einmal versäumt hatte, schickte der geist­liche
+Herr einen sehr energischen Gerichtsvollzieher. Jetzt platz­te
+die Bombe, Helaine Hennte und der Meister Villon tobte.
+Nicht, weil das Fräulein etwas, was ihn im Grunde nicht sta­chelte,
+zu spät an die Glocke gehängt hatte, sondern er ärgerte
+sich über den Heischhungrigen Bischof und seinen ungeschliffer­nen,
+schnodrigen Zolleinnehmer und Vollziehungsbeamten.
+Er brannte der frechen Person kurzerhand ein obszönes Zeichen
+in die Stirn, steckte ihm ein Spottgedicht in die Satteltasche und
+machte dem Gaul Feuer unter die Beine.
 
+Nach kaum vierundzwanzig Stunden Frist erschien der also her­ausgeforderte
+Kirchenherr an der Spitze einer Schwadron schwar­zer
+Reiter und holte Villon aus dem Bett. Es lockte ihn, diesem
+selsamen Raubvogel die stolzen Flügelfedern zu rupfen. Einem
+frechen Krummschnabel sollten für alle Zeiten die Flötentöne,
+das krächzende Gelächter genullt werden.
+
+Villon zerschlug seinen Sarraß auf einem Dutzend Reiterschä­del.
+Er unterlag der Übermacht, und da behing man ihn fix
+mit einem halben Zentner Eisen und sperrte ihn in das dunkel<a name="16"></a>
 
