@@ -55,4 +55,31 @@ wertvolle Handschriften.
 
 Von den Streichen des kleinen François mußte er wohl schon
 gehört haben, denn er nahm ihn ohne umständliche Examina
-gern auf und steckte ihn gleich in die Badewanne. Der Einfach<a name="7"></a>
+gern auf und steckte ihn gleich in die Badewanne. Der Einfach<a name="7"></a>heit
+halber wurde der gute Junge auf den Namen Villon um
+getauft und (vielleicht sogar mit einem gewissen körperlichen
+Recht) kurz: „Der Sohn“ genannt. Zum Wirkungskreis aus­gelassener
+Spiele wurde ihm vorerst die umfangreiche Bibliothek
+angewiesen. Es gab da keine Gläser zu zerschlagen, keine Zie­rate
+von den Möbelstücken zu brechen. An den Wänden stan­den
+in hohen Regalen die schweren Folianten in Reih und Glied,
+viel zu schwer und unhandlich für so einen magren Dreikäse­hoch.
+In seinem siebenten Jahr aber las er bereits Griechisch
+und Latein und hatte es mit Hilfe des klösterlichen Schreibers
+Sabeau zu einer fabelhaft flüssigen Handschrift gebracht, zu
+einer staunenswerten Fertigkeit in der Miniaturmalerei. Der Herr
+Kaplan war sehr zufrieden mit den Fortschritten seines Schütz­lings
+und an einem schönen Sommerabend packte er ihn in die
+Kalesche und brachte ihn auf die Schule der Faculté des Arts.
+Das war in des Meisters dreizehntem Jahr. Er hatte das Aus­sehen
+eines netten jungen Mannes von Sechzehn, etwas Flaum
+lag ihm schon auf der Oberlippe und die Stimme klang dick
+und dunkel. Er kam auch gleich zu den Chorsängern, erlernte
+das Spiel auf dem Virginal und bewältigte mühelos die Pensen.
+Der Rektor der Anstalt war ein Mann von Mitte Fünfzig, etwas
+beleibt und, wie das in der damaligen Zeit nicht ungewöhnlich
+war, und auch noch nicht den Gesetzen der hohen Obrigkeit
+zuwider, den ihm anvertrauten Knaben nicht nur als Lehrer
+zugetan. Der stramme, aber dabei doch ungemein gelenkige
+François interessierte ihn besonders. Er unternahm ausgedehnte<a name="8"></a>
+
