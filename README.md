@@ -1,4 +1,4 @@
-# Villon – Balladen und Lieder 
+# Die Balladen und laſterhaften Lieder des Herrn François Villon in deutſcher Nachdichtung von Paul Zech
 
 MCMXXXI Erich Lichtenſtein Verlag / Weimar
 
