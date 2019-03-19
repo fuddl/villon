@@ -82,4 +82,33 @@ war, und auch noch nicht den Gesetzen der hohen Obrigkeit
 zuwider, den ihm anvertrauten Knaben nicht nur als Lehrer
 zugetan. Der stramme, aber dabei doch ungemein gelenkige
 François interessierte ihn besonders. Er unternahm ausgedehnte<a name="8"></a>
+Spaziergänge mit ihm, und wenn sie an einem Weiher vorüber­kamen,
+dann zogen sie sich gleich aus und spülten den Staub
+der Schulstube von der Haut. Unter dem grünen Himmel la­gen
+sie einträchtig, und François erfuhr von seinem freundlichen
+Lehrer die historischen Hintergründe der Männerliebe.
+
+Später bekam er mit seinem Gönner, welcher sich verständlicher
+Weise nach einer frischen Kraft umgesehen hatte, einen kleinen
+Streit, wobei ihm das Messer ausrutschte und schließlich und
+endlich die Ursache wurde, daß man ihn, versehen mit allen
+Glück und Segenswünschen, schmeichelhaften Zeugnissen und
+heimlichen Verwünschungen auf die Universität abschob.
+
+Als François von seinem Pfegevater nunmehr einen größeren
+Wechsel forderte, weil man doch nicht studieren kann und
+gleichzeitig bei einem Bäckermeister Holz spalten, wurde der gu­te
+Mann seines Amtes, der Irrlehre wegen, gerade enthoben und
+in die Verbannung geschickt.
+
+Es blieb Villon also nichts weiter übrig, als sich nach einer loh­nenden
+Nebenbeschäftigung umzusehen. Durch Vermittlung
+eines älteren Semesters kam er als HHilfsschreiber bei einem Advo­katen an.
+Für den Strohsack und das bißchen Essen mußte er
+seine schöne Handschrift hergeben und halbe Nächte hindurch
+Urteile und notarielle Aktenstücke abschreiben. Den Rest der
+Nacht benutzte er, wenn nicht gerade Verpfichtungen bei einem
+Mädchen vorlagen, zum Weiterkommen auf der Universität.
+Ein maßloser Ehrgeiz spornte ihn an, er überfügelte bald die
+Perückenträger an Wissen, und hätte es bestimmt noch zu einer<a name="9"></a>
 
