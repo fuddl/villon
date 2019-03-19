@@ -245,5 +245,35 @@ und war voller Täler und Gipfel. Sein Leben war eine von
 Gott den Menschengeschicken in die Feder diktierte Dichtung,
 seine Dichtung war das über den Menschen hinaus bezwungene
 Leben. Er lebte es ohne Berechnung, ohne das leiseste Gefühl
+<a name="14"></a> einer Sendung. Er wachte in jeder Morgenfrühe, mit dem Ge­schmack
+von etwas Frischem, Fruchthaftem auf der Zunge, in
+einen neuen Tag hinein und nahm nichts wichtig. Nicht die
+Menschen, nicht die Wege und Umwege seines Ichs, und erst
+recht nicht das von ihm Gedichtete.
+
+So geschah es auch, daß er, ohne einen äußeren Grund, bei
+Nacht und Nebel das Schloß verließ. Regen verwischte seine
+Spur.
+
+Ein neuer Stern hatte ihn entflammt. Bei einem Jagdausflug war
+er auf die Spur einer entzückenden Landedelfrau geraten. Er
+ritt zwei Tage und Nächte durch dicken Buchenwald und fiel
+seiner neuen Eroberung Knall und Fall in die Arme.
+
+Das Fräulein Helaine de Estienne hauste in einem sehr bau­fälligen
+Schloß, in den Möbeln hustete der Wurm, von den
+Wänden hing die Seide in Fetzen herunter und der Weinkeller
+war seit Jahr und Tag radikal ausgeräumt. Villon liebte diese
+adelige Landpommeranze (die übrigens eine Nichte der Köni­gin
+war) zum Fressen, die unkönigliche Armut ihres Daseins
+stachelte ihn, und da beschloß er, mit den Mitteln solcher Leute,
+die nicht wissen, wieviel sie eigentlich besitzen, die Ruine wie­der
+wohnbar zu machen. Er bewaffnete die Instleute, machte
+ein paar kühne Züge in die fernere Umgebung und hatte nach
+sechs Wochen den gräflichen Sitz soweit renoviert, daß man
+ohne Not sogar den König empfangen und bewirten konnte.
+Die beiden verliebten Leute dachten aber vorläufig noch nicht da
+ran, dekorative Gesellschaften zu geben, sondern gaben sich ihren
 <a name="14"></a>
+
 
