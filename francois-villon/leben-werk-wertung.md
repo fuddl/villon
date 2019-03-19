@@ -217,3 +217,33 @@ des Königs ausspielen und seiner Geliebten jeden Tag eine neue
 Liebesballade dichten lassen.
 
 Villon wurde also gegen eine Monatsgage von 30 Dukaten zum<a name="13"></a>
+Leib und Kammerkompositeur ernannt. In dem feuerroten
+Samtrock, den er jetzt trug, sah er beinahe fürstlicher als der
+Herzog aus. Er fand sich sehr schnell in dieser Umgebung zu
+recht, d. h. er tat was er wollte und ging dorthin, wo es ihm be­liebte.
+In seinem Blut war der Teufel, will sagen die Spannung
+des Widerspruchs, ewig rasant, war die Quelle der Unruhe, die
+ihn nie und nirgends seßhaft werden ließ. Er bewegte sich viele
+Strecken seines Lebens in jenem luftleeren Raum, wo der Wirbel
+des Bösen und die Drehung des Göttlichen sich einander an
+zogen und wieder abstießen, mit allen Ferngeräuschen und Hin­terklängen,
+Verwirrungen und Überschnidungen, mit dem
+Auftrieb zum Ewigen und dem Absturz ins Imaginäre. Diese
+Dämonie der Vielfalt, schmerzhafte und heitere Lebendigkeit,
+Sonntag und grauer Werktag, sind in seinem Werk verdichtet;
+in seiner äußeren Form und in seiner inneren Wesenhaftigkeit.
+
+Hier, im höchsten Spannungskreis der ewigen Kurven liegt auch
+die Wurzel zu der Erkenntnis, weshalb Villon kein umfang­reiches
+Werk schreiben konnte, kein Epos, kein Drama.
+
+Er vermochte wohl, sich auf die Geschehnisse des Tages zu kon­zentrieren,
+aber alles, was weithin seine Arme nach ihm aus
+spannte, nahm er mit Feindseligkeit auf und zerbrach es nach
+erbittertem Kampf. Der Weg seines Blutes strich über denÄqua­tor
+und war voller Täler und Gipfel. Sein Leben war eine von
+Gott den Menschengeschicken in die Feder diktierte Dichtung,
+seine Dichtung war das über den Menschen hinaus bezwungene
+Leben. Er lebte es ohne Berechnung, ohne das leiseste Gefühl
+<a name="14"></a>
+
