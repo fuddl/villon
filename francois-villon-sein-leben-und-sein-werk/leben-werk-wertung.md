@@ -137,4 +137,33 @@ ja sogar bei der sonst durchaus originalen Lovize Labé („der
 schönen Lyoneser Seilerin“) und sogar bis Beranger nachweisen.
 <a name="10"></a>
 
+Sie feierten ihre fröhliche Wiederauferstehung bei Aristide Bru­ant,
+dem „Gamin de Paris“, Mitbegründer und Besitzer des
+„Chat noir“ und des „Mirliton“ in den neunziger Jahren am
+Boulevard Rochechouart. Und noch heute pflegt dieses von
+Villon virtuos befingerte Genre in Paris der versoffene Arthur
+Poullieu-Xanrof. Sogar den Deutschen ist von diesem gepfef­ferten
+Saft ein kleiner Spritzer ins Blut gegangen und hat den
+für solche untergründigen Dinge besonders empfindlichen Bert
+Brecht zu entzückend gemixten „Songs“ und „Balladen“ ange­regt.
+
+Die himmlischen Urtexte Villons sind leider perdu. Was in
+seinen „Jargonballaden“ noch davon spürbar ist, hat sich Säu­berungsaktionen
+gefallen lassen müssen, von Polizeihunden und
+Literaturpäpsten.
+
+Villon hatte damals nach keinem Zensor zu fragen, er legte los,
+wie es ihm aus dem Blut gerade nach oben floß. Er nahm den
+ganzen Zimt nicht wichtig und hatte vor „Gesammelten Wer­ken“
+den heiligen Respekt des Abscheus. Dennoch wurde er
+einem größeren Menschenkreis zuerst durch die frechen Chan­sons
+(Chansons sans Gêne) bckannt. Die Frauen bedrängten
+ihn mit ihren wildesten Instinkten und Künsten. Er konnte sich
+leider nur ein halbes Dutzend der weißen Tiere halten; der Rest
+schlug sich zu seinen Feinden. Er hatte auch von dieser Sorte
+mehr, als er gebrauchen konnte und stieß sich das überflüssige
+Zeug mit dem Degen vom Leib. Er war ein Raufbold erster
+Güte. In seinem Gesicht kreuzten sich die Narben zu Hügel
+
+<a name="11"></a>
 
