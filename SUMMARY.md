@@ -1,7 +1,7 @@
 # Table of contents
 
 * [Villon – Balladen und Lieder](README.md)
-* [François Villon, sein Leben und sein Werk](francois-villon-sein-leben-und-sein-werk/README.md)
+* [François Villon, sein Leben und sein Werk](francois-villon-sein-leben-und-sein-werk/leben-werk-wertung.md)
   * [Notwendige Anmertung](francois-villon-sein-leben-und-sein-werk/notwendige-anmertung.md)
 * [Eine Ballade für den Hausgebrauch im Winter](eine-ballade-fuer-den-hausgebrauch-im-winter.md)
 * [Die Sommerballade](die-sommerballade.md)
