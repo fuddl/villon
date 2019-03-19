@@ -188,5 +188,32 @@ Schaumünzen und güldenen Ehrendiplomen.
 
 Von nun an wurde das nächtliche Paris noch unsicherer. Es
 lag System in den Ausflügen der Bande. Sie schnappte nur <a name="12"></a>
+nach den fettesten Bissen, hatte überall Agenten sitzen und brach­te
+den Herrn Polizeipräsidenten durch Monatsgeld und Ehren
+vorsitz zum Schweigen. Sie war der sinnvollste Vorläufer der
+modernen organisierten Verbrecherbanden in Chikago, Sidney,
+Schanghai, auf dem Jang-tse-kiang und sonstigen geeigneten
+Ortsunterkünften.
 
+Leider konnten die Coquillards zuweilen den Hals nicht voll
+kriegen, sie rebellierten gegen den ökonomisch eingestellten
+Hauptmann, und als sich Villon mit allen Mitteln Respekt zu
+verschaffen suchte und dem lautesten Schreier den Flederwisch
+durch die Fresse zog, da flog der ganze Kessel in die Luft.
+Enttäuscht schlug sich Villon nach Norden durch.
 
+Monatelang trieb er sich einsam in den Wäldern von Meaux
+und Chateau-Thierry herum, bis er auf eine Jagdgesellschaft
+stieß. Weil bei den Hundeführern gerade eine Stelle frei war,
+nahm er sie mit Dank an und kam so an den Hof des Herzogs
+von Orleans. Sein poetisches Talent konnte er leider nicht mehr
+bei sich behalten. Er sang wieder zur Laute, wenn man faul
+unter den Apfelbäumen lag und präsentierte mit diesen Kunst
+stückchen gleichzeitig den Steckbrief. Der Herzog sah sich den
+Wisch von allen Seiten genau an, sah den Villon an und zer­riß
+das Papier. Er war froh, diesen verfixten Kerl an seinem
+Hofe zu haben, er konnte ihn gegen den vertrottelten Hofdichter
+des Königs ausspielen und seiner Geliebten jeden Tag eine neue
+Liebesballade dichten lassen.
+
+Villon wurde also gegen eine Monatsgage von 30 Dukaten zum<a name="13"></a>
