@@ -111,4 +111,32 @@ Nacht benutzte er, wenn nicht gerade Verpfichtungen bei einem
 Mädchen vorlagen, zum Weiterkommen auf der Universität.
 Ein maßloser Ehrgeiz spornte ihn an, er überfügelte bald die
 Perückenträger an Wissen, und hätte es bestimmt noch zu einer<a name="9"></a>
+professoralen Leuchte gebracht, wenn bei seinen Kommilitonen
+die Liebe und der Suff nicht eine so aufreizende Rolle gespielt
+hätten. François, dem die miese Quängelei eines magenkranken
+Spielverderbers nie gelegen hat und der für den tierischen Ernst
+des Lebens höchstens ein Achselzucken auf brachte, entzog sich
+keinem kommunen Streich, selbst wenn er dafür den Lohn beim
+Advokaten per Saldo opfern mußte. Bei den Gelagen der Bur­schenschaften
+spielte der Rundgesang eine wichtige Rolle und
+François entsann sich seiner musikalischen Talente und nahm die
+Laute zur Hand. Mit der vorhandenen Literatur auf dem Ge­biet
+der Freß, Sauf und Venuslieder war nicht viel anzufangen,
+da säuselte es im besten Falle nach Lavendel, schmeckte zuckrig
+und war stubenrein. Villon griff ein und schnitt sich eigene
+Texte zurecht. Die ergingen sich im Tempo der frischeren Ju­gend,
+waren keck in der Erfindung und höchst sachlich im Vor­trag.
+Der Jargon durfte alle Dinge mit dem richtigen Namen
+benennen, ohne Umschreibungen, Schnörkel, ölige Drücker.
+Sie waren die Vorläufer des sogenannten volkstümlichen Liedes,
+der Soldatenballaden und Räuberromanzen. Leider hat der tol­le
+Kerl von diesen Meisterliedern keine Abschriften hinterlassen.
+Sie spukten wohl noch ein Jahrhundert lang durch die Markt­buden,
+Kaschemmen, Zuchthäuser und Marschkolonnen her­um
+und befruchteten die schöne Literatur und Künste. Sie las­sen
+sich als befeuerndes Element bei Ronsard und Antoin Gi­rard,
+ja sogar bei der sonst durchaus originalen Lovize Labé („der
+schönen Lyoneser Seilerin“) und sogar bis Beranger nachweisen.
+<a name="10"></a>
+
 
