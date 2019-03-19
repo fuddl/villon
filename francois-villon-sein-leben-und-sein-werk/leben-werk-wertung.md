@@ -163,7 +163,30 @@ leider nur ein halbes Dutzend der weißen Tiere halten; der Rest
 schlug sich zu seinen Feinden. Er hatte auch von dieser Sorte
 mehr, als er gebrauchen konnte und stieß sich das überflüssige
 Zeug mit dem Degen vom Leib. Er war ein Raufbold erster
-Güte. In seinem Gesicht kreuzten sich die Narben zu Hügel
+Güte. In seinem Gesicht kreuzten sich die Narben zu Hügel<a name="11"></a>
+und Schluchten. Das imponierte den Vorstand der „Coquil
+lards“, der schon lange sich nach einem gewiefien Geschäftsführer
+der Mann zu sein, mit dem man die gewagtesten Sprünge unter­nehmen
+konnte. In einer Spelunke, wo Villon fast jede Nacht
+an keinem großen Geschehnis der Welt einen guten Faden ließ,
+traten die „Muschelbrüder“ an ihn heran und boten ihm ein
+Monatsgeld von zweihundert Goldzechinen… wenn er zur
+Häuptlingswürde sich bequemen könne. Hinter der Nebel
+dieses Antrags zu ventilieren. Er war abenteuerlich bis in die
+Fingerspitzen hinein, aber noch überlegen genug, seine Zusage
+mit einem schmetternden Gelächter zu bekräftigen.
 
-<a name="11"></a>
+Die ersten Raubzüge kommandierte Villon noch als eingeschtie­bener
+Student. Das Training der zügellosen Horde nahm seine
+Zeit so in Anspruch, daß er den Professoren einen saftigen Ab­schiedsbrief
+schrieb (nachzulesen bei Rabelais!) und den Dok­torhut
+in absentia verlangte. Das Sachverständigenkollegium
+entschied mit allen Stimmen gegen ihn. Er nahms den Ölgötzen
+nicht weiter krumm, ließ aber am Abend darauf die Kasse aus­rauben
+und behängte ein paar alte Zigeunerweiber mit den
+Schaumünzen und güldenen Ehrendiplomen.
+
+Von nun an wurde das nächtliche Paris noch unsicherer. Es
+lag System in den Ausflügen der Bande. Sie schnappte nur <a name="12"></a>
+
 
