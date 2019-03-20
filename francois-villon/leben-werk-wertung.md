@@ -356,4 +356,35 @@ treten; und als Villon solchem Wunsch sein Ohr nicht ver
 schloß, viclmehr froh war, daß iln jemand, auf den er sich ver
 lassen konnte, durch den gefährlichen Wald in die Hauptstadt
 begleiten wolle, rüstete er zur Abreise.
+
 <a name="18"></a>
+An einem nebligen Septembermorgen setzte sich die kleine Ka­rawane
+in Bewegung.
+
+Paris erwachte in einen neuen Tag hinein, als der Meister die
+Zollschranken passiert hatte. Er stieg in einem kleinen Gasthof
+am Fischmarkt ab und belegte das Quartier gleich auf vier Wo­chen.
+Er behielt auch den Roßtäuscher bei sich, nur die Knech­te
+mit ihren Pferden wurden wieder nach Hause geschickt.
+
+In den ersten drei Tagen hielt sich Villon alle Besucher noch
+vom Leibe. Der Regnier de Montigny hatte sich melden lassen,
+Petit Jean, Guy Tabarie und die kleine Lys Cholet.
+
+Er stand stundenlang am offenen Mansardenfenster und ließ die
+Luft durch seine ausgehungerten Lungen sausen. Er mußte sich
+an dieses Gehäuf von Häusern, diesen Verkehrsrummel und an
+die Spannungen eines intensiveren Lebensgefühls erst wieder ge­wöhnen.
+Ganz allmählich streckte er seine Fühler aus, zog Er­kundigungen
+über seine früheren Freunde ein, hörte: daß sein
+lieber Pfegevater Guillaume in Lothringen wieder zu Ehren
+und Ansehen gekommen sei, erfuhr: daß die verfluchte Katha­rine
+de Vauselles den Pierre Marchand geheiratet hatte, und daß
+seine Mutter eine Unterkunft bei dem Oheim Orace in Anjou
+gefunden haben sollte. Es erinnerte ihn nicht viel an die alte,
+vom Schicksal lederbraun gegerbte Frau. In manchen Minuten
+aber sehnte er sich, ihre Hände auf seinem Scheitel zu fühlen.
+Und verfluchte sich gleich wieder darauf: eincr sentimentalen
+Laune unterlegen zu sein.
+
+Am fünften Tage hatte Meister Villon sich wieder ganz in der<a name="18"></a>
