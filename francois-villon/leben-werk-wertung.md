@@ -416,5 +416,35 @@ Tode mehrfach, immer hatte dieser Gauner von Format es aber
 verstanden, im letzten Augenblick dem Henker zu entwischen.
 
 Als Meister Villon ihm vorgeführt wurde, hieß er ihn nieder­knien.
-Villon spie ihn an und war link genug, dem blitz<a name="20"></a>
+Villon spie ihn an und war flink genug, dem blitz<a name="20"></a>
+schnell gezückten Messer auszuweichen. Jetzt warf sich die gan­ze
+Gesellschaft auf den Meister und behängte ihn mit Kugeln
+und Ketten. Der Italiener begehrte nicht mehr und nicht we­niger,
+als die Herausgabe der großen Pläne, die Villon für die
+Ausraubung der Staatsbank ausgeknobelt hatte.
+
+Villon dachte, jetzt gilt es, den Schandkerl in die Falle zu locken.
+Und mit gutgespielter Unterwürﬁigkeit band er dem Italiener
+einen gehörigen Bären auf. So ganz sicher war Nicolas Siemon
+aber nicht davon überzeugt, daß Villon die Wahrheit gesagt
+habe. Er nahm zur Vorsicht den gefesselten Meister einfach mit
+auf die Raubtour. Nun war die ganze Geschichte von Villon
+aber so gut angelegt, daß die Polizei, schön vorbereitet von dem
+Roßtäuscher, frühzeitig Wind bekam. Sie erschien auch nach
+Villons Wunsch. Es entspann sich eine fürchterliche Schlacht
+in den Katakomben. Die überrumpelten Banditen schlugen
+sich bis zum Tunnel an der Seine durch, und als sie hier das
+Tor ausheben wollten, stand der Polizei Obrist mit seiner Garde
+bereit. Der Fuchsbau war von allen Seiten umzingelt. Einzeln
+fielen die Gauner den Polizeimännern in die Hände. Der Ita­liener
+bekam gerade in dem Augenblick einen Säbelhieb über
+den Schädel, als er Villon für den offenkundigen Verrat kalt
+machen wollte. Es kann bei einem Für und Wider, wenn man
+die Handlungsweise Villons zur Debatte stellt, nicht mit Wer­tungen
+von heute geurteilt werden. Die Bande der Coquillards
+hatte eigene Gesetze, Schnelljustiz, ein Maximum der Formel
+Auge um Auge, Zahn um Zahn.
+
+<a name="20"></a>
+
 
