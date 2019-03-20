@@ -387,4 +387,34 @@ aber sehnte er sich, ihre Hände auf seinem Scheitel zu fühlen.
 Und verfluchte sich gleich wieder darauf: eincr sentimentalen
 Laune unterlegen zu sein.
 
-Am fünften Tage hatte Meister Villon sich wieder ganz in der<a name="18"></a>
+Am fünften Tage hatte Meister Villon sich wieder ganz in der<a name="19"></a>
+Gewalt. Die Kneipe glich jetzt dem Stabsquartier eines Ober­befehlshabers.
+Nur daß hier die Strategie sich auf die organi­sierte
+Niederkämpfung der Polizei und die Beobachtung jener
+Häuser erstreckte, die im Geruch von wohlgefüllten Schatz­kammern
+standen.
+
+Die Bande der Coquillards war an eiserne Zucht gewöhnt. Die
+Kerle schlugen über die Stränge, wenn keine sichere Faust die
+Zügel hielt. Sie machten ihre Raubzüge plump und stahlen
+wahllos.
+
+Nach einem Zusammenstoß mit den Elitejägern des Polizei­chefs,
+wobei es auf beiden Seiten Tote und Verwundete gab,
+raffte Villon sich auf und hielt Gericht. Die Strafexpedition,
+viel zu spät unternommen, war ganz und gar nicht nach dem
+Geschmack der Banditen. Über die Hälfte trennte sich von Vil­lon
+und machte eine unkonzessionierte Filiale auf. Ein wilder
+Wettbewerb um das ergiebigste Finishent brannte, und bei einem
+dieser Konkurrenzgefechte fiel Villon seinen Gegnern in die
+Hände. Der Anführer dieser Bande war ein gewisser Nicolas
+Siemon, Italiener von Geburt, ein verwegener Kerl, dessen Ge­sicht
+einer zerquetschten Tomate glich. Da war keine Stelle
+mehr, wo nicht schon das Messer gesessen hatte. In seinen poli­zeilichen
+Strafakten stand die Verurtcilung zum schimpflichsten
+Tode mehrfach, immer hatte dieser Gauner von Format es aber
+verstanden, im letzten Augenblick dem Henker zu entwischen.
+
+Als Meister Villon ihm vorgeführt wurde, hieß er ihn nieder­knien.
+Villon spie ihn an und war link genug, dem blitz<a name="20"></a>
+
