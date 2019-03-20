@@ -446,5 +446,34 @@ hatte eigene Gesetze, Schnelljustiz, ein Maximum der Formel
 Auge um Auge, Zahn um Zahn.
 
 <a name="20"></a>
+Für empfindsame Gemüter soll auch gleich vermerkt werden,
+daß Villon in die Grube, die er einem anderen grub, selber hin
+einpurzelte. Denn, wenn er geglaubt hatte, daß er nach beende­tem
+Katakombenkampf vergnügt ins Freie spazieren könne, war
+die Rechnung ohne den Polizeiobristen gemacht. Dieser berufs­mäßige
+Ordnungsgott hatte es schon lange auf den Meister ab­gesehen.
+Nicht weil es ihn ehrgeizig juckte: Paris von den fre­chen 
+Desperados zu säubern, damit man seine Glieder in Ruhe
+strecken konnte und seine Gelder in der Kommode liegen las­sen:
+nein, auch hier spielten wieder einmal ganz persönliche
+Dinge eine entscheidende Rolle. Villon hatte mit seinen vielen
+Frauen immer das merkwürdige Pech, daß sie sich von ihren
+früheren Liebhabern noch nicht völlig losgesagt hatten. Sie pen­delten 
+sozusagen zwischen Tal und Hügel, nahmen von dem
+einen die Sicherstellung des täglichen Lebens und von dem an­dern 
+das Sonntägliche, die nervenkitzelnde Fahrt auf der Luft
+schaukel.
+
+Und als er dem Polizeiherrn die kleine Denise abspenstig mach­te,
+der Schandkerl, der Geizhals, der in den meisten Fällen ver­gaß,
+die Polizei zu alimentieren, da war es an der Zeit, sich ent
+sprechend zu rächen. Verbrechen hatte der verfluchte Kerl genug
+auf dem Kerbholz. Nur noch keinen gemeinen Mord. „Ver­schaffen
+wir uns einen!“ meinte der infame Gauner in Staats­uniform 
+zu sich und schlug in der nächsten Nacht den Grafen
+Brunnier (mit dem Villon auch mal einen kleinen stadtbekannten
+Handel gehabt hatte) mit einer Eisenstange den Schädel ein. Das
+<a name="21"></a>
+
 
 
