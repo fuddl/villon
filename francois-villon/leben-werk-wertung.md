@@ -445,7 +445,7 @@ von heute geurteilt werden. Die Bande der Coquillards
 hatte eigene Gesetze, Schnelljustiz, ein Maximum der Formel
 Auge um Auge, Zahn um Zahn.
 
-<a name="20"></a>
+<a name="21"></a>
 Für empfindsame Gemüter soll auch gleich vermerkt werden,
 daß Villon in die Grube, die er einem anderen grub, selber hin
 einpurzelte. Denn, wenn er geglaubt hatte, daß er nach beende­tem
@@ -473,7 +473,38 @@ wir uns einen!“ meinte der infame Gauner in Staats­uniform
 zu sich und schlug in der nächsten Nacht den Grafen
 Brunnier (mit dem Villon auch mal einen kleinen stadtbekannten
 Handel gehabt hatte) mit einer Eisenstange den Schädel ein. Das
-<a name="21"></a>
+<a name="22"></a>
+Protokoll verzeichnete den letzten Seufzer des Grafen. Er lautete:
+„Der Villon!“
+
+Der Protokollfälscher war natürlich der Her Polizeiprinzipal sel­ber.
+Das konnte der öffentliche Ankläger Mirbou natürlich nicht
+gut annehmen. Er schickte Villon, was näher lag, in ein scharfes
+Kreuzverhör. Und als Villon nur ein pfiffiges Lächeln den Aus­fragen
+entgegensetzte, und dann, als es ernster wurde, den Mord
+ganz entschieden bestrit, mußte der „verstockte Sünder“ in die
+Wasserprobe, jener barbarischen Folter, von der niemand ohne
+„Geständnis“ herunter kam. Villon widerstand, bis es ihm be­denklich
+schlecht wurde. Er hatte elf Liter Wasser im Leib. In
+seiner Not, daß es ihm ins Hemd gehen konnte, oder auch um
+den Hals, sagte er: „Meinetwegen, ich bin also der Mörder des
+Herren Grafen, wenn ihr keinen anderen Bösewicht auf Lager
+habt!“
+
+Da sprach ihn das Gericht schuldig und überantwortete ihn dem
+Henker. Zum Glück für Villon wurden die Terrassen am Richt­platz
+gerade umgebaut. Auch die Eröffnung der Königlichen
+Komödie wartete man ab. Eine Premiere immer hübsch nach
+der anderen! Man hoffte nämlich, füir das fabelhafte Abkehlen
+eines berühmten Dichters und ebenso berüchtigten Banditen, min­destens
+1000 Tribünenkarten absetzen zu können. Und verpach­tete 
+die Stände der Waffelbäcker, Wursthändler und Gaukler,
+die Plätze für den Moritatensänger und Heiligenbildchenver­käufer 
+für das fünffache der sonst üblichen Miete.
+
+Villon flog in seiner Zelle, von allen Freunden in schmählicher
+<a name="23"></a>
+
 
 
 
