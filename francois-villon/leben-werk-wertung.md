@@ -504,6 +504,38 @@ für das fünffache der sonst üblichen Miete.
 
 Villon flog in seiner Zelle, von allen Freunden in schmählicher
 <a name="23"></a>
+Weise verlassen, auf und ab wie ein Schiff auf der Klippe. Er
+verspürte nicht die geringste Lust, den Parisern ein unerhörtes
+Schauspiel auf Kosten seines Kopfes zu geben. Er hatte sich den
+Tod überhaupt ganz anders vorgestellt, viel intimer, reizvoller und
+den Lebensgewohnheiten gemäß.
+
+Er sammelte sich schließlich zu einer Eingabe an das Parlament.
+Da saßen viele Gönner von ihm: Jaques Fournier, Denis Hesse­lin,
+Nicolas de Louviers, Michel Cul d'Oue und François de
+Bruyères. Er fand die Unterstützung des Direktors des Châtelet,
+(übrigens ein auf des Meisters Wohlergehen sehr bedachter Herr,
+dieser Robert d'Estouteville), der Offiziere Martin Bellefaye und
+Isaak Pathelin.
+
+Er bat nicht um sein Leben, aber darum: Frankreich die Blamage
+zu ersparen: seinen ersten Dichter gehenkt zu haben. Und dazu
+noch für einen Mord, der ihm im Traum nicht einmal einge­fallen 
+wäre.
+
+Er verfertigte endlich das Cesuch. Es waren bestimmt keine ju­ristischen
+Spitzfindigkeiten darin, kein Zwiebelextrakt für den
+Kitzel der Tränendrüsen, und auch keine Spur von „Reue“.
+
+Auf Wunsch des im Gefängnis und beim Henken amtierenden
+Kaplans sollten noch zwanzig der bedeutendsten in Paris leben­den 
+Künstler und Schrifisteller die Appellation unterzeichnen.
+Dieses Pack lehnte aber, wie bei solchen Angelegenheiten fast
+immer, die Unterschrift ab; es wollte keine Gemeinschaft mit dem
+Ausbund, der Teppiche stahl und alles Goldeigentum für Dieb­stahl 
+erklärte.
+<a name="24"></a>
+
 
 
 
