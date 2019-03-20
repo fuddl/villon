@@ -355,5 +355,5 @@ Der Roßtäuscher hatte große Lust, in des Meisters Dienste zu
 treten; und als Villon solchem Wunsch sein Ohr nicht ver
 schloß, viclmehr froh war, daß iln jemand, auf den er sich ver
 lassen konnte, durch den gefährlichen Wald in die Hauptstadt
-begleiten wolle, rüstcete ex zur Abreise.
+begleiten wolle, rüstete er zur Abreise.
 <a name="18"></a>
