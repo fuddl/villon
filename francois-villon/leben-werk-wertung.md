@@ -328,5 +328,32 @@ und bei einem Roßtäuscher Unterkunft fand. Dieser brave
 Mann brachte den Meister verhältnismäßig schnell auf die Beine.
 Er hatte einen vorzüiglichen Landwein im Keller, hielt sich einen
 großen Hühnerhof und pflegte auch einen ungenierten Umgang
-mit den hübschesten Mädchen aus den Bürgerthäusern<a name="16"></a>
+mit den hübschesten Mädchen aus den Bürgerthäusern<a name="17"></a>
+Villon hatte sich eine Laute zu verschaffen gewußt, und was er
+in den neblichten Herbstnächten der Gesellschaft zum Besten
+gab, das hatte noch niemand in den Gesangbüchern gelesen.
+Soweit die Bürger Niederschrifien der Kirchengesänge besaßen!
+Aber alles, was in ihrem urgesunden Blut als eine Traumer­scheinung
+eine unerklärliche Spannung oder schamhaftige Freu­de
+wütete, das setzte dieser sonderbare Vagant in einen tagfrohen
+Ausdruck des äußeren Lebens um, in einen räumlichen Begriff
+und machte das Erlebnis der nahen Wirklichkeit zu einem we­sentlichen
+Geschenk. Sie sahen in ihm, der ihre Stumpfheit auf
+lockerte, ihren Gesichtswinkel verbreiterte und vor allem ihr
+Blut entkalkte und entsäuerte, den Verkünder eines neuen Le­bensgefühls,
+den Heerführer zu einem besseren Menschentum
+und den Mitbruder einer wahren Brüderlichkeit. Es wollte auch
+nicht in ihren Sinn hinein, daß solch ein aufgeräumter und strö­mender
+Kopf von der Obrigkeit gejagt wurde wie ein schor­figer
+Steppenwolf. Sie boten ihm Haus und lebenslängliches
+Taschengeld, wenn er ihr Mitbürger würde. Er winkte aber bei­zeiten
+und eindeutig ab. Unwiderstehlich lockte ihn Paris. Er
+hatte Sehnsucht nach seinen lieben Muschelbrüdern, nach der
+dicken Margot und dem bunten Trubel der Wochenmärkte.
 
+Der Roßtäuscher hatte große Lust, in des Meisters Dienste zu
+treten; und als Villon solchem Wunsch sein Ohr nicht ver
+schloß, viclmehr froh war, daß iln jemand, auf den er sich ver
+lassen konnte, durch den gefährlichen Wald in die Hauptstadt
+begleiten wolle, rüstcete ex zur Abreise.
+<a name="18"></a>
