@@ -301,5 +301,32 @@ das krächzende Gelächter genullt werden.
 
 Villon zerschlug seinen Sarraß auf einem Dutzend Reiterschä­del.
 Er unterlag der Übermacht, und da behing man ihn fix
-mit einem halben Zentner Eisen und sperrte ihn in das dunkel<a name="16"></a>
+mit einem halben Zentner Eisen und sperrte ihn in das dunkel<a name="16"></a>ste
+Loch des bischöflichen Kerkers. Ein Interventionsversuch
+des schnell verständigten Herzogs hatte nicht den geringsten Er­folg,
+noch weniger der Befreiungsversuch der Zieunerbande,
+die das Mißgeschick ihres Freundes als eine eigene Unbill emp­fand.
+
+Meister Villon schwitzte unter der Kettenlast Blut und Wasser
+und magerte zum Skelett herunter. Während dessen arbeitete der
+Anklagevertreter eifrig an der Klageschrift. Sieben Bände füllte
+er mit den tollen Streichen Villons, und verhörte an die fünfhun­dert
+Zeugen. Im Zuge dieses Tempos hätte der Gerichtstag viel
+leicht in zehn Jahren erst stattfinden können. Das war dem Bi­schof
+zuviel. Er griff in das Verfahren ein und setzte den Ter­min
+der Hauptverhandlung fest.
+
+Als das barbarische Gefecht zwischen dem Ankläger und Vil­lon
+schon in der dritten Woche tobte, und des Meisters Kopf nur
+an einem Zwirnsfaden noch hing (nachzulesen bei Cayeulx,
+Bd. Ⅲ), da hatte Gott Mitleid mit dem armen Schächer und
+veranlaßte, daß Ludwig Ⅺ. sich zum König krönen ließ. Die
+allgemeine Amnestie setzte den Dichter Villon natürlich zuerst
+in Freiheit. Er war aber so schwach, daß er die Stadt des Grau­ens
+und maßloser Beschimpfung nicht gleich verlassen konnte
+und bei einem Roßtäuscher Unterkunft fand. Dieser brave
+Mann brachte den Meister verhältnismäßig schnell auf die Beine.
+Er hatte einen vorzüiglichen Landwein im Keller, hielt sich einen
+großen Hühnerhof und pflegte auch einen ungenierten Umgang
+mit den hübschesten Mädchen aus den Bürgerthäusern<a name="16"></a>
 
