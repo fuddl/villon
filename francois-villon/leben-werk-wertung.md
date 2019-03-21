@@ -595,7 +595,35 @@ Villon beruhigte sie, indem er das Parlament verteidigte und den
 Polizeichef als den wirklichen Schubiack bezeichnete.
 Seht: dies tolle Herumgehetz in der Stadt hat mir die Haare fast
 vom Schädel gefressen. Man wird angespannt wie ein Pferd, das
-<a name="26"></a>
+<a name="26"></a>die Wassermühle von früh bis spät drehen muß. Ich muß mich
+wieder einmal richtig ausschlafen, damit ich zu Kräften komme.
+Damit ich einem kleinen Mädchen die Backen vernünftig strei­cheln 
+kann. Ich kann nun einmal nicht so verdammt allein sein
+in der Welt. Ich habe eine Totenangst, wenn alles um mich her
+um so still ist, wenn kein Vogel zirpt und keine Freudenbecher
+klirrn. Ich träume des Nachts, wenn ich wach in der Klappe
+liege, von bösen Geistern und glaube: in einem tiefen und weiten
+Wasser herumzuschwimmen. Das kommt vielleicht von der
+schrecklichen Folterkammer. Wißt ihr, was das heißt, wenn man
+so an die zehn Liter Wasser in den Leib hineingegossen be­kommt?
+Wenn das öde Zeug wenigstens nach Wein oder Plau­mensaft 
+geschmeckt hätte! Und wenn die Kugel am Bein nicht
+aus Eisen, sondern ein Kürbis gewesen wäre. Für einen Sack
+voll Geld hätte man diesen Spaß ja haben können . . Aber meine
+schönen Dukaten waren doch dem Polizeikerl in die Finger ge­fallen. 
+Das Schwein kann sich jetzt dafür einen Spitzbauch an
+mästen. Und meine kleine Flamme hat er mir auch noch weg­geschnappt.
+
+Jetzt habt ihr so eine kleine Kostprobe von meinem Lebenslauf
+vorgesetzt bekommen. Guten Appetit… und Prost!“ (Siehe Ra­belais, 
+Bd. IV, 67).
+
+Die junge Frau des Herbergsvaters, die diese lustigen Gespräche
+mit angehört hatte, zog den Meister Villon jetzt an ihren Tisch.
+Sie sagte ganz leise zu ihm: „Du hast ein Gesicht, da ist viel Wind
+durchgegangen. Auch deine schönen Lieder habe ich schon
+<a name="27"></a>
+
 
 
 
