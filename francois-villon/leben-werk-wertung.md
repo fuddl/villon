@@ -535,7 +535,7 @@ immer, die Unterschrift ab; es wollte keine Gemeinschaft mit dem
 Ausbund, der Teppiche stahl und alles Goldeigentum für Dieb­stahl 
 erklärte.
 
-<a name="24"></a>Villon lachte sich bucklig, als er von diesen Beschlüssen hörte,
+<a name="25"></a>Villon lachte sich bucklig, als er von diesen Beschlüssen hörte,
 er verzichtete gern auf die „Goldene Feder“, auf den fragwürdigen
 Titel eines Akademieprofesseurs.
 
@@ -565,7 +565,38 @@ Pflaumenbäume standen in Knospen.
 
 Er entschied sich also für die Verbannung, und taumelte hilflos
 durch die Schwärze der Wälder. Da hörte er plötzlich Pferde
-<a name="25"></a>
+<a name="25"></a>gewieher. Er pirschte sich an den Fahrweg heran und horchte in
+die Nacht.
+
+Es war ein Getreidetransport, der heranrückte, eine lange Kette
+von Planwagen. Villon sprang kühn auf den ersten. Der Kut­scher 
+griff zur Peitsche. Villon sagte ihm aber, daß er ihm Mär­chen 
+erzählen wolle. Lustige Schnurren von den Coquillards,
+von den Pfaffen und Pariser Mädchen.
+
+Das leuchtete dem Kutscher ein. Es war ein weiter Weg bis St.
+Generoux. Ein weiter Weg bis zur nächsten Nachtherberge.
+Villon erzählte lustige Schnurren, eine Stunde, zwei Stunden…
+und schlief jetzt schon die fünfie.
+
+Er mußte hart geschüttelt werden, als man vor der Herberge Rast
+machte, und wollte auf den Kornsäcken durchaus weiter schla­fen. 
+Der Knecht zog ihn aber in das Lokal mit hinein, und nun
+ließ sich der Meister auch nicht lumpen und bestellte für die ganze
+Kumpanei eine Lage Wein. Er klimperte mit den Dukaten, die
+er in einem Säckchen auf der Brust trug. Man bekam Respekt
+vor ihm, und als er gar erzählte, daß er der Gedichtmeister und
+Räuberhauptmann Villon sei, da ließen ihn die Kerle hochleben.
+Sie wußten, was sie ihm schuldig waren, und schimpften wie die
+Pest auf das Parlament, das dem Meister Villon diesen überaus
+schoflen Abschied gegeben hatte.
+
+Villon beruhigte sie, indem er das Parlament verteidigte und den
+Polizeichef als den wirklichen Schubiack bezeichnete.
+Seht: dies tolle Herumgehetz in der Stadt hat mir die Haare fast
+vom Schädel gefressen. Man wird angespannt wie ein Pferd, das
+<a name="26"></a>
+
 
 
 
