@@ -534,7 +534,38 @@ Dieses Pack lehnte aber, wie bei solchen Angelegenheiten fast
 immer, die Unterschrift ab; es wollte keine Gemeinschaft mit dem
 Ausbund, der Teppiche stahl und alles Goldeigentum für Dieb­stahl 
 erklärte.
-<a name="24"></a>
+
+<a name="24"></a>Villon lachte sich bucklig, als er von diesen Beschlüssen hörte,
+er verzichtete gern auf die „Goldene Feder“, auf den fragwürdigen
+Titel eines Akademieprofesseurs.
+
+Er arbeitete das Gnadengesuch flugs um und hatte am Ende eine
+Ballade daraus gemacht. Im Ton eine, wie sie der Drehorgelspie
+ler singt, wenn er die Moritaten der letzten Monate illustriert. Ein
+Stück, das bis heute noch nicht seinesgleichen in der Weltliteratur
+hat, das nicht einmal von des Deutschen Dichters Georg Kaiser
+Verteidigungsrede vor den Geschworenen in München, von Zo­las
+„La vérité en marche“ und Karl Liebknechts Aufruhrrede,
+zu Berlin auf dem Potsdamer Platz im zweiten Kriegsjahr, über­troffen 
+wird und nachträglich noch den Nobelpreis erhalten
+müßte.
+
+Das Parlament erhob sich von den Plätzen, als der Sprecher die
+Ballade vorlas. Einstimmig wurde beschlossen, daß das Henken
+zu unterbleiben habe, und daß man ihn frei lassen möchte. Das
+heißt nicht frei nach seinem eigenen Willen, sondern frei außerhalb
+von Paris auf zehn Jahre.
+
+Also: regelrechte Verbannung, brummte Villon, als man ihm
+das mit schweren Siegeln geschmückte Dokument unter die Nase
+hielt. Eine ganze Weile besann er sich noch, ob das Henken
+vielleicht nicht doch noch vorteilhafter gewesen wäre, als dieser
+traurige Hinauswurf in dieWälder. Aber, es war März, und die
+Pflaumenbäume standen in Knospen.
+
+Er entschied sich also für die Verbannung, und taumelte hilflos
+durch die Schwärze der Wälder. Da hörte er plötzlich Pferde
+<a name="25"></a>
 
 
 
