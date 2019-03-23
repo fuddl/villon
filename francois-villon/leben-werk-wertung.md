@@ -880,10 +880,36 @@ einer tiefen Schamhaftigkeit. Nie kann man bei ihm das Unge­heuer
 als ein Grundprinzip zum Bösen erkennen. Auch nicht
 als eine rhetorische Floskel angeschminkter Dämonie. Er hätte
 jedes Sichaufspielen sofort unterbunden. Wenn er die Umwelt
-seinem Willen unterjochte, verminderte er ihren Wirkungskreis<a name="36"></a>
+seinem Willen unterjochte, verminderte er ihren Wirkungskreis<a name="36"></a>nicht
+aus der raffsüchtigen Gier des Machthungers. Ihm war jene
+Macht, die sich auf Grund von äußeren Privilegien und ererbten
+Hoheitsrechten Millionen Menschen als Ausbeutungsobjekt ein­verleibte,
+entrechtete und nach ihrer Pfeife tanzen ließ wie welkes
+Laub im Windwirbel, das verabscheuungswürdigste Verbre­chen.
 
+Der Bischof Thibaut d'Aussigny wußte deshalb genau, was er
+tat, als er Villon, gegen den Willen des Königs, und gegen die
+Gesinnung des Volkes, einsperren ließ. Es ist nicht zu leugnen:
+Villon hat an der Spitze einer organisierten Bande geraubt und
+geplündert, wo Gold und Goldeswert aufgespeichert lag. Und
+hat oft genug in animalischem Überschwang die primitivsten
+Sittengesetze verletzt.
 
+Aber: die Kirche würde ihm alles verziehn haben (Raub, Dieb­stahl, 
+Unzucht und Mord), wenn er sein Leben nicht so auf­reizend 
+in den Vordergrund gerückt und, angesichts des schon
+vom Zweifel geplagten Volkes, die Autorität des Kirchengottes
+mißachtet hätte. Die heilige katholische Kirche hatte vicle Poeten
+in Lohn und Brot und zahlte hochanständig, wenn die gelieferten
+Beiträge das Volk noch tiefer mit dem Weihrauch der gläubigen
+Hingabe umnebelten.
 
+Sie erhielt, kraft ihrer ausgezeichneten Organisation und ihres
+Geldes, überragende Kunstwerke. Sie bestimmte jahrhunderte­lang
+die Kultur.
+
+Bei Villon freilich ist die Spur des weltlichen Mäcens schon zu
+seinen Lebzeiten deutlich erkennbar gewesen. Natürlich darf man<a name="37"></a>
 
 
 
