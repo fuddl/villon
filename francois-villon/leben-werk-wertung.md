@@ -852,7 +852,36 @@ der von solcher überalterten Lehre verdummten Masse.
 Dabei war er etwa kein absoluter Antichrist. In seinen Balladen
 sind Gebete von solch einer Claubensinnigkeit, die in der
 Schlichtheit des sprachlichen Ausdrucks und in der Vollkom­menheit 
-des Gedankens vom Da Sein einer ewigen Urkraf, auf<a name="35"></a>
+des Gedankens vom Da Sein einer ewigen Urkraf, auf<a name="35"></a>Erden
+und im Blut ihrer Bewohner nicht seinesgleichen haben.
+Wenn er diesen Erkenntnissen sich hingab, gab er sich hin mit
+der reinen Seele eines Kindes. Er war, wie alle schöpfcrisch posi­tiven 
+Leute, voller Zweifel über die letzte Zweckform des Da
+seins. In solchen Krisen überfror eine schauervolle Einsamkeit
+sein Herz. Es entspann sich ein mörderischer Kampf zwischen
+Gefühl und Wissen, zwischen Hemmung und Überschwang.
+Das Blut, daß in solchen Momenten immer bei den stärkeren
+Strömungen auf der Lauer steht, entschied sich für die Sendung
+des Herzens. Aus dem gelockerten Ventil schoß alles empor,
+was unten bei den Quellen gelagert hatte: die Träne und das Mit­leid, 
+die Hilfsbereitschaft und der singende Mund.
+
+Villon suchte Zuflucht bei der ärmsten menschlichen Kreatur
+Er mußte ,jemand um sich haben", der, noch geduckter unter
+dem bösen Schicksal, den Glauben an eine ausgleichende Ge­rechtigkeit 
+verloren hatte und das Leben verfluchte. Es mußte
+einer da sein, an dem er sich mit der schönen Lüge aufrichten
+konnte: sich, hier ist einer, den das Leben noch tausendmal hef­tiger
+peinigt!
+
+In der Dichtung Villons kommt jede Nuance seines Lebens zu
+ihrem Recht. Sein Zynismus war nur der maskierte Ausdruck
+einer tiefen Schamhaftigkeit. Nie kann man bei ihm das Unge­heuer 
+als ein Grundprinzip zum Bösen erkennen. Auch nicht
+als eine rhetorische Floskel angeschminkter Dämonie. Er hätte
+jedes Sichaufspielen sofort unterbunden. Wenn er die Umwelt
+seinem Willen unterjochte, verminderte er ihren Wirkungskreis<a name="36"></a>
+
 
 
 
