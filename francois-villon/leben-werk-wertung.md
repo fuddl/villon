@@ -823,7 +823,37 @@ Tanz. In seinen Gedichten und Balladen ist nie ein Aufruhr
 gegen die Zeit, aber eine Anheizung ihres Tempos spürbar; ist
 nie der Mensch der Verachtung preisgegeben, aber die Maske sei­nes 
 Biedertums, die spießerischen Trägheiten. Seine Welt schoß
-materiell aus dem Nichts empor, ihre Flugbahn jedoch war von<a name="34"></a>
+materiell aus dem Nichts empor, ihre Flugbahn jedoch war von<a name="34"></a>seinem
+Blut gespeist. Er meinte überall und immer nur sich, wo
+mit er aber nicht in jedem Falle die absolute Herrschaft des Einzel­individuums 
+propagieren wollte im schroffen Gegenüber zur
+Menge. Der im Dumpfen dahinfaulenden Masse bahnte er, wie
+noch nie einer vor ihm, den breiten Weg zur Freiheit. (Auch
+dort, wo er öffentliche Kassen leerte und meskine Blaublüter mit
+dem Degen kitzelte.)
+
+Er stöberte sie in allen Winkeln auf, die Erbpächter des Elend
+und belichtete ihre grenzenlose Feigheit mit dem Scheinwerfer­licht 
+seines Mutes zur Anarchie. Fün war der Bruch mit den
+alten Gesetzen nichts weiter, als ein hemmungsloses Vorwärts­stoßen 
+des Ichs. Er behauptete sein eingeborenes Ich gegen das
+Vielfache des Gesetzgebers und seiner Wachhunde. Er ahnte das
+Eingreifen der Maschine in den Raubbau mit Menschenkraft vor­aus 
+und machte die Sklavengehirne der Leibeigenen mündig zum
+persönlichen Handeln.
+
+Er hatte die Genugtuung, daß die Rechtsgelehrten der Kirche
+seine Methode so einschätzten, wie er sie geformt hatte zur Waffe.
+Es gab für das kirchliche Götzentum keinen hefigeren Feind als
+Villon. Weil er nämlich nicht die Lehre an sich reformieren
+wollte mit dem Einsatz seiner Ideen, sondern das pure Denkver­mögen 
+der von solcher überalterten Lehre verdummten Masse.
+
+Dabei war er etwa kein absoluter Antichrist. In seinen Balladen
+sind Gebete von solch einer Claubensinnigkeit, die in der
+Schlichtheit des sprachlichen Ausdrucks und in der Vollkom­menheit 
+des Gedankens vom Da Sein einer ewigen Urkraf, auf<a name="35"></a>
+
 
 
 
