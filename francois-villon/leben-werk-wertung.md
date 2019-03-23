@@ -770,7 +770,34 @@ Literaturbeflissener debutiert. In jeder Zeile aber, die da ist, ist
 Ewigkeit gemünzt, ist etwas Erst und Einmaliges zum wesen­haften 
 Ausdruck seiner und künftiger Zeit gelungen.
 
-<a name="32"></a>
+<a name="32"></a>Die Dichter, die vor ihm waren (wir notieren nur die wertvolleren
+seines Sprach und Lebensbezirkes), die Audefroy le Bastard
+(1210—1270), Guilleaume de Machault (1290—1375) und Eu­stache 
+Dechamps (1340—1410), bewegten sich noch alle im Gleis
+der provenzalischen Troubadours. Das heißt, sie empfingen Kunst
+nicht aus dem Blut, sondern bogen mit Hirn und Handgelenk
+den handelsüblichen Stoffkreis zum kunstgewerblichen Artikel
+für den Bedarf der Höfe und Patizier. Daher waren sie auch
+häufig gegen eine entsprechende Monatsgage ,,angestell". Mit
+den gleichen Rechten und Pfichten wie der Henker, Kammer­diener, 
+Hundescherer, der außerehcliche Bettwärmer und der
+Goldmaker. Vielfach versahen sie auch das Amt des Spaß­machers, 
+Tanzmeisters und Prügelknaben gleich mit. An den
+königlichen Höfen zumal bewegte sich ihr Rang vor dem Kanz­ler
+und hinter dem Friseur. Sie hatten selten ein Eigenleben. Ein­samkeit 
+war ihrem Allüberallsein ein undefinierbarer Begriff.
+
+François Villon war der erste, der den Sprachbogen scines Ge­dichts
+von Schwulst und Schnörkel abrückte. Er hat auch auf
+Bestellung nur das gedichtet, was ihm jenseits des Gebundenen
+einfiel. Seine Einfälle kamen alle aus der absoluten Wesenheit
+des Ichs. Das Ich ging überall vor und bezog die Bewegungen
+des Umkreises auf sich. Er war immer aktul. Im rasenden Vor­wärts
+seines ungehemmten Blutes hatte die Historie keinen Raum.
+Auch nicht das Idyll und das geschwätzige Feuilleton. Alles,
+was ihn anzog, hindurchzudringen, mußte sich mit seiner Lust
+decken. Er lag lieber wochenlang faul im Graben, als dem Brot<a name="33"></a>
+
 
 
 
