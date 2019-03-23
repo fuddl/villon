@@ -965,5 +965,34 @@ Zweckmäßigkeit als Ausdruck eines Willens zur Vereinfachung,
 ist immer nur an das Geschehnis der Gegenwart gebunden, so­bald 
 man ein aichbares Maß daraus machen will. Messen wir
 aber einmal am Wortwerk Villons das Gedicht von heute, das <a name="39"></a>
+wir als ein meisterliches, also in unserem Sinne vollkommenes
+Kunstwerk anerkennen: wie umständlich, wie umwegig, wie um­pebelt
+von barockhirnlichem Zierat ist ein einfacher menschlicher
+Ablauf zur sogenannten Form gedehnt!
+
+Es ist falsch, das wortarme Gedicht August Stramms für die
+letzte künstlerische Konsequenz anzusehen. Er rangiert als Künst­ler 
+tiefer, als der oft allzu üppig von Musik umschauerte Rainer
+Maria Rilke, tiefer als der zerebrale Apoll Stefan George. Die
+beide, jeder auf einem anderen Gipfel, das lyrische Erlebnis der
+Deutschen um 1920 repräsentieren.
+
+Die Einfachheit Villons ist nicht die seiner Zeit und seiner Zeit­genossen. 
+Sie ist nur die seines, auf das Wesentliche gerichteten,
+Kunstverstandes. Sie inkarniert das Erkennen, worauf es an­kommt, 
+nämlich: auf das Verdichten von Erlebtem. Im schrof­fen 
+Gegensatz zur Kunstgelenkigkeit, die zwar der Gegenwart
+das Klappern der Scharniere verbergen kann, von einer neuen
+Generation aber erbarmungslos entlarvt wird.
+
+Es soll zugegeben werden, daß Erscheinungen vom Überrang
+Villons der Wahrnehmungsbahn cines Kometen wesensverwanedt
+sind. Sie umkreisen in der Ellipse feuerschweifend und optisch
+aufregend den zentralen Kern aller Kunst. Ihre nächste Nähe
+(also ihre Geltung als etwas Phänomenales), wird dann immer
+erreicht sein, wenn die Krise einer neuen Epoche auf dem Höhe­punkt
+angelangt ist. Wenn sich die Geister des abgewelkten Ge­stern, 
+endlich von den lebendigen Bildungen von heute schciden.
+Wenn die Tradition unterminiert ist und ein Chaos Form werden <a name="40"></a>
 
 
