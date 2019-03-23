@@ -796,7 +796,35 @@ des Umkreises auf sich. Er war immer aktul. Im rasenden Vor­wärts
 seines ungehemmten Blutes hatte die Historie keinen Raum.
 Auch nicht das Idyll und das geschwätzige Feuilleton. Alles,
 was ihn anzog, hindurchzudringen, mußte sich mit seiner Lust
-decken. Er lag lieber wochenlang faul im Graben, als dem Brot<a name="33"></a>
+decken. Er lag lieber wochenlang faul im Graben, als dem Brot<a name="33"></a>herrn
+eine Konzession zu machen. Am wohlsten hatte er sich
+gefühlt, wenn seinesgleichen um ihn war. Seiner Herkunft nach
+war er ein Proletarier. Seine Dichtung ist die erste proletarische;
+aber nicht cine, die bloß die Vokabel aus diesem Menschenbe­reich 
+bezog und sie anstelle der sonst im höfischen Gedichtjargon
+üblichen setzte, sondern die Spannungen der inneren Gesichte
+aus der grausamen Wirklichkeit des Alltags bezog und sie zu
+einer originalen Ausdrucksform verdichtete. An diesem Vor­läufer 
+aller wahrhaften „Volksdichtung“ gemessen, wie hinter
+grundlos scharwerkert der dichtende Prolet von heute, wie tief
+wurzelt er noch in der Ammenmythologie fossiler Welt, im Däm­mer 
+romantischer Landschaft, in der Temperatur des Magens!
+Und dichtet gegen die Maschine, gegen den Trust, gegen die
+Zeit. Die Atmosphäre des gediegen Bürgerlichen scheint ihm
+(dem ewig im Aufruhr sich Dünkenden!) eine erstrebenswerte
+Welt, die man, mit einigen kleinen Korrekturen, getrost einsacken
+kann. Aus solchen schiefen Zerdehnungen kommt er zum Mit­leid, 
+zum O-Menschentum und zur Verklärung des Armleute
+Milieus.
+
+Der proletarische Dichter François Villon jedoch schaffi bewußt
+die Fröhlichkeit des Herzens, die geistige Beschwingung, den
+Tanz. In seinen Gedichten und Balladen ist nie ein Aufruhr
+gegen die Zeit, aber eine Anheizung ihres Tempos spürbar; ist
+nie der Mensch der Verachtung preisgegeben, aber die Maske sei­nes 
+Biedertums, die spießerischen Trägheiten. Seine Welt schoß
+materiell aus dem Nichts empor, ihre Flugbahn jedoch war von<a name="34"></a>
+
 
 
 
