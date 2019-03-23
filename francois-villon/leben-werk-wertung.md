@@ -623,10 +623,35 @@ mit angehört hatte, zog den Meister Villon jetzt an ihren Tisch.
 Sie sagte ganz leise zu ihm: „Du hast ein Gesicht, da ist viel Wind
 durchgegangen. Auch deine schönen Lieder habe ich schon
 <a name="27"></a>
+manchmal zur Laute gesungen. Du bist ein Teufelskerl. Du
+könntest eine Weile bei uns hier wohnen bleiben. Ich werde dir
+die Backen rund füttern. Und bald werden auch wieder die
+Plaumenbäume blühn. Es kann sein, daß ich dich lieb habe.
+Und wenns meinem Alten nicht gefallen sollte, stecken wir ihn
+in den Keller zu den Runkelrüben.“
 
+Sie gab Villon schnell einen herzhaften Kuß auf den Mund, lief
+in die Küche und machte ihm ein anständiges Essen zurecht.
+Villon dachte: Luder! Dieses Weibsbild hat Anlagen, eine fette
+weiße Made aus mir zu machen. Ich werde ihr diese Nacht den
+Nabel mit der Zunge kitzeln. Und das Parlament und der Kö­nig
+von Frankreich … die können mir … sonstwo!
 
+Als die Fuhrleute abzogen, lag Villon bei der schönen Wirts­frau 
+im Bett. Sie beugte sich oft über sein Gesicht und sah,
+daß er tief traurig in seinen Träumen war. Ihr Herz gelobte: sein
+Blut so froh zu machen, bis es überläuft und eine neue Ballade
+singt.
 
+Man weiß nicht, wie lange Villon bei dieser schönen Herbergs­frau 
+gehaust hat. Als seine alten Freunde von den Fuhrleuten
+auflangen Umwegen seine Adresse exfuhren, da war er schon ein
+gutes Stüick in die Welt hinaus gewandert, und die Frau Wirtin
+ging im sechsten Monat von ihm schwanger.
 
+Es half auch nichts, daß sich der König selber nach Villon um
+sah. Er wollte ihm nämlich zur Tröstung einen Orden in die
+Verbannung schicken.
 
-
-
+Brüssel war weit; und in dieser erheblich kühleren Landschaft mit
+<a name="28"></a>
