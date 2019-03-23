@@ -712,7 +712,35 @@ cingespannt in der Kraftspeicherung seiner Blutenergien. Er kit­zelte
 die Menge mit plastisch gemachten Leidenschaften und
 prellte sie um das Wesenhafie seiner Urerscheinung. Er war eirn
 Verbrecher an der Kunstgläubigkeit jener, die ihm hörig waren,
-weil er Kunst auch auf dieser Etappe nicht ernst nahm, wenig
-<a name="30"></a>
+weil er Kunst auch auf dieser Etappe nicht ernst nahm, wenig<a name="30"></a>stens
+nicht wichtig genug, um Akten darüber anzulegen, Memo
+iren zu schreiben.
+
+Er wird sich auf diesem hypertrophierten Dreh seines Lebens den
+Knacks geholt haben, von dem er nie mehr zu seinen Balladen zu­rückkehrte.
+
+In seinen Briefen erlosch er mit einem Male. Seine Spur verwisch­te 
+der Nebel, das Meer oder irgendein Erdhügel der schottischen
+Hochebene. (Also nachzulesen bei Bréaumont!)
+
+Die Legende erzählt, daß Villon der Brüderschaft vom Kloster
+zum Heiligen Gral beigetreten sei. In den Urkunden des Klo­sters
+findet sich kein Beweis. Es lag für Villon auch kein Grund
+vor, katholisch zu werden in dem Sinne, wie so viele Literaten,
+wenn sie für die Liebe kein Feuer mehr im Blut haben. Eher
+wird man jenen Gerüchten Glauben schenken müssen, die den
+Meister gesehen haben wollen als einen großen Kriegshelden und
+Kanzler des Sultan Ibram Ali.
+
+Der Welt kann es gleichgültig sein, wohin dieser Stern seine
+Leuchtbahn weitergerollt hat; ob in ein morgenländisches Him­melreich
+mit Frauen und blutbewegten Tagen, ob bei Zigeunern:
+strichvogelhaft durch Europens nördliche Provinzen … oder gar­nicht 
+einmal so weit fort von Paris: Wurm zu Würmern und
+Mist zu Mist. Er hat sich unter Menschen bewegt, wie kein ande
+rer Mensch mehr. Seine Raubzüge waren A usstrahlungen einer
+energiebewegten Weltsele. Kein Gesetz irgendwelcher Ord­nungstafel 
+konnte er ernst nehmen, er stellte sich außerhalb jeder
+Gesellschaftsbahn. Er war der zur Dynamik gesteigerte Aus<a name="31"></a>
 
 
