@@ -909,8 +909,32 @@ Geldes, überragende Kunstwerke. Sie bestimmte jahrhunderte­lang
 die Kultur.
 
 Bei Villon freilich ist die Spur des weltlichen Mäcens schon zu
-seinen Lebzeiten deutlich erkennbar gewesen. Natürlich darf man<a name="37"></a>
+seinen Lebzeiten deutlich erkennbar gewesen. Natürlich darf man<a name="37"></a>nicht
+sagen, daß er aus schnöder Berechnung ein gefüigiger Hof­poet 
+war, ein kritikloser Verherrlicher dynastischer Tugenden. Er
+führte keine Aufträgeaus, die ihn menschlich und politisch wider
+den Strich gingen. Er gab von vornherein den Ton an, in den
+die anderen cinzufallen hatten, Sie fielen gern ein, weil er zu den
+lebendigen Dingen Bezug hatte.
 
-
-
+Die Weiber spielen in Meister Villons Balladen eine besondere
+Rolle. Er hat keiner Frau, die er je besaß, einen billigen Schmacht­fetzen 
+gesungen. Er griff zu. Er packte sie an der Stelle, wo sie
+ihrer Veranlagung nach am empfindlichsten waren und in den
+tollen Dreh der Verzückung gerieten. Sie wurden in seinen Ar­men 
+trächtige Erde, Blüte und Frucht. Das Animalische war
+jedoch nie der Urzweck seiner entfesselten Bewegung. Er ließ
+nur dem Temperament seinen freien Lauf. Er licbte sachlich,
+das heißt: er baute keine zeitfremden Barockschnörkel, keine Mas­kerade 
+und Verlogenheit um den Beischlaf. Er tat seine Schuldig­keit,
+männlich und geradeaus, und verlangte, daß man auch ihm
+nichts schuldig blieb. Man kann deshalb auch nicht behaupten,
+daß er, mit Übersättigung beladen, seine Zufucht im Zynismus
+suchte. Zum Zyniker von Geblüt fehlte ihm jede Voraussetzung,
+in seiner Liebesart waren Erde, Wind und Wolken miteinander
+vermischt. Es gibt einige (allerdings nicht jedem zugängliche und
+allen bekömmliche) Balladen Meister Villons, da wird das Auf­einanderprallen 
+der Fleische mit solch einer schamlos brutalen
+Bildhaftigkeit gegenständlich gemacht, die letzten Fundamente
+der Zeugungsgewalten so erschlossen, daß man glauben könnte:<a name="38"></a>
 
