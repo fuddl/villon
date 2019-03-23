@@ -684,5 +684,35 @@ auch aus England geschrieben hatte.
 
 Wir wissen auch nicht, ob er schon in Brüssel, oder erst in Ant
 werpen auf die Schauspielertruppe stieß, an deren Zigeunertum
-<a name="29"></a>
+<a name="29"></a>er aus dem langen Winterschlaf wieder auferwachte in den ver­jüngten,
+wandertollen Umtrieb.
+
+Er saß eines Tages in Antwerpen. Er spielte, vor dem breiten be­häbigen
+Volk, in einem Passionsstück den Judas Ischariot. Ob
+er selber das Stück verfaßt hat oder bloß inszeniert, interessiert
+uns vorerst nicht. Jedenfalls spielte er seine Rolle ausgezeichnet.
+Seine Stimme war von einer sieghaften Gewalt, sie war kultiviert
+und nuancenreich.
+
+Und noch in cinem anderen Mysterienspiel wurde er als Dar­steller
+bewundert. Hier spielte er den Apostel Paulus, den Eife­rer, 
+den Ideenträger der katholischen Religion, er zeichnete
+ihn ohne frömmlerische Verbrämung, ohne den Heiligenschein­zauber.
+
+In seinem Privatleben aber war er wieder der spannungsvolle,
+amüsante, gemeine, ludrige und herrschsüchtige Feuerkopf, der
+Genußpirat und Frauenbeschwörer. Der Chevalier von Paris.
+Der General des geheimen Ordens der Coquillards.
+
+Vielleicht hatte er das Medium des Zufalls, die aufreizende Kitze­lung
+des Überraschenden in der Schickung des Schicksalhaften,
+nicht mehr notwendig als Kraftquelle seiner Existenz. Er sah
+daß er seinen Willen endlich erobert hatte. Er fühlte das Maßlose
+cingespannt in der Kraftspeicherung seiner Blutenergien. Er kit­zelte
+die Menge mit plastisch gemachten Leidenschaften und
+prellte sie um das Wesenhafie seiner Urerscheinung. Er war eirn
+Verbrecher an der Kunstgläubigkeit jener, die ihm hörig waren,
+weil er Kunst auch auf dieser Etappe nicht ernst nahm, wenig
+<a name="30"></a>
+
 
