@@ -654,4 +654,35 @@ sah. Er wollte ihm nämlich zur Tröstung einen Orden in die
 Verbannung schicken.
 
 Brüssel war weit; und in dieser erheblich kühleren Landschaft mit
-<a name="28"></a>
+<a name="28"></a>ruhigen Menschen, unendlichen Viehweiden und Flachsbleiche­reien, 
+hatte Villon kein Verlangen, ein großes Aufheben davon
+zu machen, wer er war, woher er kam und wohin er weiter zu
+walzen gedachte.
+
+Bei einem Briefmaler hatte er eine ruhige Unterkunft gefunden,
+konnte sich sammeln und viel Zeit auf seine Weiterbildung ver­wenden. 
+Es ging keinem etwas von seinem Werk, seinem Schick­sal 
+und Alltagsgeschehnissen verloren. Aus dem typischen Au­genblicksvielfraß
+war ein besinlicher Lebensbetrachter geworden;
+aus seinen Seitensprüngen und schwindelerregenden Kurven eine
+schnurgerade Landstraße mit breiter Baumallee.
+
+Es wird berichtet, daß er an der Universität Vorlesungen abhielt
+und sich damit sein Brot verdiente. Er wäre vielleicht mit den
+Jahren ein untadeliger Beamter geworden, der Vagabund Villon.
+Ein Vorstandsmitglied der Schützengilde, ein wohlwollender Ge­schworener
+bei Sensationsprozessen. Wenn er gedichtet hätte
+während dieser seltsamen Rekonvaleszenz, oder wenn uns von
+dem in jener Zeit Gedichteten etwas erhalten geblieben wäre,
+vielleicht müßte man einen weiten Sprung tun, um schnell dar­über
+hinweg zu kommen.
+
+Keine Gedichtzeile ist bekannt geworden, nur spärliche Brief
+post ging an den Kriminalrat Dubois, der war der cinzige, dem
+er von dicsen beiden Stationen Brüssel und Antwerpen und spä­ter
+auch aus England geschrieben hatte.
+
+Wir wissen auch nicht, ob er schon in Brüssel, oder erst in Ant
+werpen auf die Schauspielertruppe stieß, an deren Zigeunertum
+<a name="29"></a>
+
