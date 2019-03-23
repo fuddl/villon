@@ -936,5 +936,34 @@ vermischt. Es gibt einige (allerdings nicht jedem zugängliche und
 allen bekömmliche) Balladen Meister Villons, da wird das Auf­einanderprallen 
 der Fleische mit solch einer schamlos brutalen
 Bildhaftigkeit gegenständlich gemacht, die letzten Fundamente
-der Zeugungsgewalten so erschlossen, daß man glauben könnte:<a name="38"></a>
+der Zeugungsgewalten so erschlossen, daß man glauben könnte:<a name="38"></a> hier
+rast sich ein auserwähltes Erdenmenschenpaar so aus, als
+wäre es dem grauenhaft aufgespannten Akt um die Pfanzung
+des Jahrtausend Menschen zu tun.
+
+Dieser Spannungswirbel ist für uns Intellektkreaturen nur noch
+symbolisch faßbar, medizinisch zerlegbar. Wir mögen (aus
+Schwäche und aus tatsächlichem Unvermögen!) diesen Aufwand
+nicht. Wir stellen uns nur davor und glauben, daß unser Schat
+ten ausreicht, den schamlosen Vorgang abzudrosseln.
+
+Bei Villon aber war die Entfesselung des Blutes, des unverbrauch­ten 
+und unvermischten, die höchste menschliche Leistung. Denn
+den Begriff Nerven, diese billige Verdrehung eines Mankos, kann
+te das Zeitalter Villons noch nicht. Womit beileibe nicht fest­gestellt
+sein soll, daß dieser Mensch überhaupt keine Nerven hatte.
+Auch Villon war in seinen Lebensäußerungen bis zur letzten
+A usdrucksmöglichkeit organisiert, er hatte Fingerspitzengefühl,
+hirnliche Belastungen und seelische Empfindsamkeiten. Er setzte
+dieses Arsenal an Feinmechanik, Komprimierung und Ballung
+aber in eine andere Bewegungsform um, anders als die, deren wir
+uns heute bedienen, um an der Spitze zu bleiben. Was wir bei
+ihm vielleicht tragische Sinnlosigkeit nennen dürfen, ist bei uns
+der Hang zur Rekordjägerei, die Kultivierung der Einzelleistung
+in Anlehnung an die zweckmäßige Leistung der Maschine.
+Zweckmäßigkeit als Ausdruck eines Willens zur Vereinfachung,
+ist immer nur an das Geschehnis der Gegenwart gebunden, so­bald 
+man ein aichbares Maß daraus machen will. Messen wir
+aber einmal am Wortwerk Villons das Gedicht von heute, das <a name="39"></a>
+
 
