@@ -741,6 +741,36 @@ Mist zu Mist. Er hat sich unter Menschen bewegt, wie kein ande
 rer Mensch mehr. Seine Raubzüge waren A usstrahlungen einer
 energiebewegten Weltsele. Kein Gesetz irgendwelcher Ord­nungstafel 
 konnte er ernst nehmen, er stellte sich außerhalb jeder
-Gesellschaftsbahn. Er war der zur Dynamik gesteigerte Aus<a name="31"></a>
+Gesellschaftsbahn. Er war der zur Dynamik gesteigerte Aus<a name="31"></a>druck
+seines Blutes. Er nahm die Legende von den „Lilien auf
+dem Felde“ wörtlich in die Aspekte seines Erdenwandels hin­über.
+Sie wurde der erste Paragraph im Gesetzbuch seiner Mo­ral.
+
+Er hat viele Jahre seines Lebens in Gefängnissen zugebracht.
+
+Er hat unsterbliche Balladen geschrieben.
+
+## Ⅱ
+
+Das Gedicht Franois Villons hat keinen Vorläufer. Er bog
+überaltertes Gut nicht in die Scheidemünze seines Tages um. Er
+war, mit aller Heftigkeit eines Hellhörigen im Blut und in der Be­wegung 
+des Hirns, ein Erzeugnis der Stunde. In jegliche Stunde,
+die ihn überkam, preßte er sich hinein und füllte sie aus mit hef­tigen
+Geschehnissen. Aus solcher Bindung formte sich sein Ge­dicht.
+
+Mit dem Maß des Umfangs und dem des Gewichts gemessen,
+füllt es nicht den üblichen Dutzendsarg der „Gesammelten Wer­ke“ 
+beliebter Autoren. Auch wenn wir das, was mit dem Wind
+der Wanderungen verweht ist, vom Feuer gefressen und von den
+Motten zermalmt, auf das Dreifache von dem schätzen, was
+Freunde und Jünger gesammelt haben und später drucken ließen,
+so ergibt das Oeuvre nicht viel mehr als das, womit heute ein
+Literaturbeflissener debutiert. In jeder Zeile aber, die da ist, ist
+Ewigkeit gemünzt, ist etwas Erst und Einmaliges zum wesen­haften 
+Ausdruck seiner und künftiger Zeit gelungen.
+
+<a name="32"></a>
+
 
 
