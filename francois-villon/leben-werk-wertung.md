@@ -1193,8 +1193,88 @@ Benn komprimiert jeden Gedichtvorgang zu ciner me­dizinisch
 mathematischen Schlußformel. Villon ordnete sein 
 Werk unauffaällig in den Ablauf des täglichen Lebens ein. Er
 legte ihm die Bedeutung von Brot, Trunk und Beischlaf bei. Er 
-<a name="47"></a>
+<a name="47"></a>machte es im Menschen, in sciner Welt und seinen Geschäfien
+mündig.
 
+Wie restlos ihm dieser Prozeß gelungen ist, beweist die Güiltig­keit 
+seines Werkes noch im Raum unseres komplizierten Kunst­erlebnisses. 
+Es hat im Wandel der Jahre nichts an Tempo ein
+gebüß, höchstens nur ein Blasserwerden der historischen Farb­flecke
+erfahren. Im stoff lichen Gemeng der Historie liegt aber nie
+die Bedeutungshöhe eines Gedichtes.
+
+Es gibt in Deutschland heute eigentlich nur einen Dichter, der
+am Rande der Werkleistung Villons bestehen kann als ein selb­ständiger 
+Kopf. Es gibt nur einen, der sich von den hirnlichen
+Belastungen, von der Akrobatik des Handgelenks endlich be
+feit hat und die Wesenheit aller Dinge besingt. Das ist Johannes
+R. Becher. Ihm fehlt nur noch die polare Sicherheit des Ichge­fühls,
+die Gleichung von Masse und Ich.
+
+Der Fluch jeder ursprüinglichen Kunstäußerungist diebedrücken­de 
+Nähe der gesellschaftlichen Kastenbildung. Immer muß sich
+der Künstler, will er sich in der tätigen Zeugungsglut scines Blu­tes 
+behaupten, zum Feind der Geselschaft stcigern. Er hat nie
+etwas mit ihr gemein gehabt. Ihre Welt ist nicht seine Welt. Und
+ihre Erlebnisformen sind fressende Flechten an der Gefühlshöhe,
+tiefe und weite seiner Erlebnisbahnen.
+
+Eine Erscheinung wie Villon hatte unter viel ungünstigeren mate­riellen 
+Bedingungen als der Dichter im gegenwärtigen Zeitraunm
+sein Werk vorwärts treiben müssen. Wir haben, an den seltsamen
+Kurven seines äußeren Lebens, die Schwierigkeiten: gegen den ein<a name="48"></a>geführten 
+Jargon der Gesellschaft zu produzieren, aufzeigen kon­nen.
+Es bedarf keiner weiteren beweiskräftigen Beispiele mehr, um
+festzustellen: daß das gegen den Strich Dichten heute mehr eine
+Angelegenheit des Charakters ist. Nein, weniger noch: eine Ange­legenheit 
+des Temperaments. Selbst von der soziologischen Ecke
+her betrachtet (was für die Erkenntnis von Epochen gerade noch
+anwendbar ist!): wiegt der Antibürger heute bei weitem nicht so
+schwer, als in der Zeit Villons, wo es noch keinen Tierschutz­verein gab,
+aber eine viehisch verrohte Folter seelischer und kör­perlicher 
+Art; wo das, Recht auf Arbeit" viel einfacher formu­liert 
+war in dem erdhaften Trieb des Raubes, und das Hängen
+einen Spaß für den Jahrmarkt abgab, umrahmt von Schießbude,
+Festfraß und Tanz nackter Weiber um den leistungsfähigsten
+Phallus.
+
+In uns wuchtet der Bruch einer Übergangszeit. Je mehr wir aus
+dieser Erkenntnis heraus den Ausgleich suchen bei Naturen wie
+Villon, die weder in sich den Bruch trugen, noch leiden mußten
+an einer Zerbröckelung der Zeitfundamente: um so schwerer be­drückt 
+uns das Unvermögen, aus dem eigenen Blut heraus eine
+neue Lebensform zu schaffen, eine Bejahung des Ichs gegen die
+Zeit.
+
+Es gab selten solche troslosen Zeiten für den gegen die Zeit glü­henden 
+Zeitgenossen, wie in diesem chaotischen Jahrzehnt nach
+dem Weltkrieg. Die Hypertrophik des mechanisierten Lebens­gefühls 
+ist noch der verhältnismäßig schwächste Feind, den man
+zu überwinden hat. Der Kampf gegen die Maschine ist ein Irr<a name="49"></a>weg.
+Der Kampf gegen den Maschinengeist aber, das erste und
+wichtigste Hindernis, das eine neue Kunstform im Sturm zu neh­men
+hat.
+
+Eine Zeit jedoch, die im A usdruck ihrer schöpferischen Jugend
+Brücken findet zu solchen nahrhaften Revolutionären wie Villon
+und Rimbaud: die wird auch dem Dichter endlich gegenüber
+stehn, der sich mit ihr so intensiv auseinandersetzt, daß sie unter
+Druck und Zwang allmählich geistigen Formen zustrebt.
+
+Der Antibürger Villon wird bei dieser Wandlung nicht abseits
+stehn. Denn er hat nie die Bewegung der Gesellschaft, sondern
+überall und immer die Kräfte der Erde ernst genommen, sie auf­gegriffen 
+in seinen Tag und mit seinem Blut zur Form geknetet.
+Er vernichtete die zeitfremden und bigotten Schnörkel der Kirche
+und das hohle Stelzentum der oberen Gesellschaft mit Feuer und
+Schwert, mit Feder und Harfe.
+
+Der Dichter aber, den wir endlich über uns wissen wollen als
+Turm und Sternhorizont: der erlöse uns von dem Mythos des
+tragischen Leidens, von der Lüge des Gemeinschaftserlebnisses
+zur Wiederauferstehung des Ichs.
+
+Im Anfang war das Ich, der tätige Geist über den Wassern.
 
 
 
