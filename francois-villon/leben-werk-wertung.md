@@ -1082,7 +1082,119 @@ auf und zersetzt den Mythos der schönen Seele mit den
 genestelt und sportgestähl, die aber ebenso witzig sein
 kann und ironisch, wie nachdenklich und eindringlich.
 
-<a name="43"></a>
+<a name="43"></a>Dem Frankreich seiner Zeit war Villon das auf einen Menschen­körper 
+gepfropfe Fabelwesen, das umstachelte Faunsgesicht, der
+Räuber mit der Harfe.
+
+A ber wie jedem Eroberer die Maske eines skrupellosen Gewalt­menschen 
+angedichtet wird, schien alles an ihm brutal, muskel­haft 
+und rücksichtslos auch denen, die vom faulen Zauber über­sinnlicher 
+Erscheinungen nicht mehr angekränkelt waren. Die
+von der Formung des Irdischen ausgingen und letzte Erkenntnis
+möglichkeiten mit dem Ignorabimus abschlossen.
+
+Eine so universale Erscheinung wie Villon kann uns deshalb in
+jedem Betracht nur bereichern, nicht abstoßen. Villon ist zwei­fellos 
+ein erklärer Feind jeglicher Gesellschaftsform, die sich ari­stokratisch 
+von der Masse absondert. Für ihn ist die Masse der
+Ausdruck gewachsener Naturgewalt. Er reiht sie ein in das ele­mentare 
+Wachstum aller Dinge, die noch organisch mit dem
+Nährboden der Erdeverbunden sind: Baum, Tier und Mensch.
+(Diesen heiligen Dreiklang schlug ich schon wiederholt an!)
+Hier wurzelt der Ursprung seines Wesens, hier breitet er sich aus,
+hier gießt er sich hinein und strömt zu den unendlichen Meeren
+der ewig dauernden Schöpfung.
+
+Er war ein Außenseiter im Intervall des fünfzchnten Jahrhunderts,
+ein Kerl vom Format der uns gesellchaflich vielleicht näherlie­genden 
+Boccaccio, Johann Secundus und Aretino. Und kann
+immer noch den Ruhm für sich buchen: nicht eingegangen zu
+sein in das große Heer der von uns als gleichberechtigt akzep­tierten 
+Erscheinungen. Wiewohl sein Oeuvre bei weiem nicht<a name="44"></a>
+das Werk von Shakespeare erreicht… dem räumlichen Umfang
+nach und der letzten und endgültigen Aussage: so steht es den
+noch (in jedem Betracht!) gleichwertig neben des großen Briten
+Werkleistung. Es unterscheidet sich von ihr nur durch das wer­niger
+gezügelte Tempo, durch das Sprunggelenk, durch die re­bellische 
+Unordnung und ihre Bastardierungen; vor allem aber
+durch die weniger populäre Artung.
+
+Shakespeare schuf für die Bühne; er setzte sein Gebild sofort in
+die plastische Form um, die zu allen Zeiten den Empfängern sol­cher 
+verdichteten Ich Welt geläufig wurde als die große Symbolik
+des Lebens. Das dramatische Spiel im Raum aller menschlich
+möglichen Geschehnisse wird immer nachhaltiger wirken, als ein
+Gedicht. Das Gedicht aber erfordert Konzentration im Einsamen,
+die entfaltete Fächerkrone der Seelenheiterkeit, den Sinn fiür das
+Zarte und die Erschütterung vor der grenzenlosen Furchtbarkeit
+des Ichs. Es ist so komprimiert, daß es für ein langes Leben das
+gleiche Aufnahmeorgan speisen kann, und zwar so intensiv, wie
+bei der ersten Begegnung: in einem schmerzlichen Schauspiel ver­göttert 
+zur Form, und gespannt gehalten von der unerschütter­lichen 
+Lust zur Qual.
+
+Villon hat als erster seiner Zeit dic überalterte Form der Romanze
+beiscite gestellt und die ihm viel gemäßere (und gesetzmäßig auch
+bedingtere) Form der Ballade geschaffen. Er näherte sich damit
+dem Drama an. Er gab der Handlung freien Lauf in das täg­liche 
+Leben. Das war bei den Liedern der Troubadours durch
+aus nicht der Fall. Sie hatten die Klapper des Handwerks schon
+<a name="45"></a>so fest im Handgelenk, daß sie gar nicht mehr anders konnten,
+als jegliches Erlebnis in den Eisentopf der traditionellen Form zu
+pressen und so lange unter Druck zu halten, bis es sich umstülpen
+ließ als gangbares Gebild für den Konsum.
+
+Für den Meister Villon hat nie eine, von professoralen Doktrinen
+geaichte Maßform existiert. Er schuf sie neu aus jedem Erlebnis
+und entlief der Gefahr der mechanisch bewegten Routine. Er
+schuf sich aber nicht nur die Form, er entriß auch das Wort,
+,das arme, im Alltag darbende", der Verflachung. Bei ihm ist
+jedes Wort aus dem Urerlebnis geboren und steht als einmaliger
+Ausdruck. Er konnte es sich leisten, zehnmal Herz und Schmerz
+zu reimen, und trug jedesmal ein anderes Erlebnis aus mit dem
+unendlichen Hintergrund des Symbols. Er übentrieb auch noch
+nicht die tiefere Bedeutung der symbolischen Form, er machte
+kein artistisches Kunststückchen daraus, oder gar jene feierliche
+Gebärde, welche die von der Kirche beauftragten oder von den
+Höfen bestallten Dichter sich zulegten, um ihre cigene Ungläu­bigkeit, 
+ihren wässrigen Untertanenverstand zu vertuschen. Bei
+Villon vollzicht sich jedes schöpferische Erlebnis in der nüchtern­klaren 
+Sonne des Alltags. Sein Werk ist von allen Seiten be­greifbar. 
+Bei ihm ist selbst der pornographische Exzeß eine vom
+Blut her ins Leben gewachsene Erschütterung vor dem Gött­lichen 
+im Tierleib. Weil der Begriff Scham für ihn noch in einem
+anderen Sinn existierte, als welchen wir ihn deuten, belastet mit
+dem Übersättigungsekel einer auf Irrwege getriebenen Kulur,
+konnte er es sich auch erlauben, die animalischen Triebkräfte un<a name="46"></a>verhüllt
+und unbeschnitten in das Zentrum einer Begebenheit zu
+heben. Nichts geschieht im menschlichen Himmel und auf der
+menschlichen Erde, das man als ,,unpoetisch" beiseite stellen
+könnte. An seiner letzten Formgebung beweist sich erst der Dich­ter. 
+Das hat in späterer Zcit selbst ein so vorsichtig formender
+Dichtgeist wie Goethe aufgezeigt. Das zeigt uns, wenn auch
+mehr aus der Perspektive des künstlerisch bewegten, und mu­sisch 
+umwehten Arztes, als aus der des unbedingten Gedicht
+künstlers, der Zeitgenosse Gottfried Benn. Auch bei Gottfried
+Benn ist in vielfachem Maße die vom Blut bestimmte Erlebnis­intensität 
+Villons als Erbteil spürbar. Die stärkere Hirnlichkeit,
+das nervösere Tempo ist durch die vierhundert Jahre Fortschritt
+bedingt. Das Grunderlebnis aber hat die gleichen menschlichen
+Erregungsspannungen, die Ironie und die eisklare Erkenntnis des
+Maskeradentums im bürgerlichen Gesellschafisdreh, mit Gott­fried 
+Benn gemein.
+
+Was Benn aber, gewertet an seinem großen Vorgänger, abgeht,
+ist die Verdichtung zum Einfachen, zur stählernen Zweckmäßig­keit 
+und zum Urlaut. Benn baut, unter völliger Ausschaltung
+der gefühlsmäißigen Erregung, hirnlich kunstvoll präzisierte Vers­maschinen.
+Villon verließ sich einzig und allein auf die explo­sive 
+Gewalt des erregten Blutes als Kraftquelle und Energielei­stung. 
+Benn komprimiert jeden Gedichtvorgang zu ciner me­dizinisch 
+mathematischen Schlußformel. Villon ordnete sein 
+Werk unauffaällig in den Ablauf des täglichen Lebens ein. Er
+legte ihm die Bedeutung von Brot, Trunk und Beischlaf bei. Er 
+<a name="47"></a>
+
 
 
 
