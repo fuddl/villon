@@ -62,7 +62,7 @@ der kleine Herr Ranunkel aus Brabant.
 Und wenn ihr glaubt, daß er schon längst vor Qual  
 verhungert ist, habt ihr noch immer nicht  
 gemerkt, daß man im Wald auch ohne Licht  
-die Haselnüsse pAücken kann, zumal  
+die Haselnüsse pflücken kann, zumal  
 er diese Liebe noch viel schöner fand,  
 der kleine Herr Ranunkel aus Brabant.
 
