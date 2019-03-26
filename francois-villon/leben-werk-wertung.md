@@ -993,6 +993,98 @@ aufregend den zentralen Kern aller Kunst. Ihre nächste Nähe
 erreicht sein, wenn die Krise einer neuen Epoche auf dem Höhe­punkt
 angelangt ist. Wenn sich die Geister des abgewelkten Ge­stern, 
 endlich von den lebendigen Bildungen von heute schciden.
-Wenn die Tradition unterminiert ist und ein Chaos Form werden <a name="40"></a>
+Wenn die Tradition unterminiert ist und ein Chaos Form werden <a name="40"></a>will. 
+Dann kommen Kerle wie Villon und befruchten. Voll­enden 
+die große Zeugung und schwirren wieder ab.
+
+In welcher Zeitspanne wohl kehrt er wieder?
+
+Vierhundert Jahre nach dem (mutmaßlichen) Tode Villons wur­de 
+das ,Trunkene Schiff des Knaben JeanvArthur Rimbaud
+geboren.
+
+Es bedarf keiner umständlichen Beweisführung, um festzustellen,
+daß der Komet Villon das großartigste Dichterwunder des neun­zehnten 
+Jahthunderts, den „Sohn Shakespeares“ (vgl. Victor
+Hugo!) diesen Rimbaud in die Welt gesetzt hat. In Rimbaud
+selbst war Villon nicht Ahnung nur und Gefühl, sondern An­rufung 
+und Aussage. Er bekannte sich öffentlich in aufreizender
+Bejahung zu seinem Vater. Er trat mit Inbrunst und Besessenheit
+sein Erbe an. Er wuchs und wucherte mit dem Pfund. Er rückte
+es in die grellere Sonne einer mächtig fortgeschrittenen Zeit und
+schuf dieser Zeit ihren Ausdruck.
+
+Die Erscheinung Villons ist aus dem Werk Rimbauds nicht zu
+bannen. Der Kräftekreis, der diese Kunstleistung bewegt, ist der
+Blutgeruch Villonscher Lebensartung, ist die schöpferische Span­nung
+seiner Welt im Unterbewußtsein der von kosmischen Strah­lungen 
+umschauerten Knabenseele. Von der Kunstleistung Rim­bauds 
+aus (weil sie in ihrem sinnfälligen Ausdruck unseren Ge­fühlen 
+gerade erst heute gegenwartsnahe geworden ist) ermessern
+wir die Leistung Villons vollkommen. Wir mindern nicht um
+den geringsten Grad das Werk Rimbauds (das wir glühend be­wundern 
+und als einen Turm im Gewimmel von Sandhaufen<a name="41"></a>werten!),
+wenn wir behaupten, daß er zu früh abbrach, um über
+Villon hinaus vierhundert Jahre höher zu wachsen. Es ist ein
+Torso geblieben, die erste Stufe zu einem zweiten Phänomen.
+Hierbei spielt der Umstand gar keine Rolle, daß Rimbaud das
+Werk selber abbrach (Absurde! Ridicule! Degoûtant!), und zwar
+auf der steilsten Kurve einer Krise. Diese Krise schlug in ein
+körperliches Erlebnis um. Er wollte nichts anderes, als das
+Nebenerlebnis der Literatur, das ihm im Wege war, abdrosseln
+mit dem Tempo anderer Blutbewegungen. Er wollte das unge­wöhnliche 
+Erderlebnis, den Urwald, die ergiebigste Goldader:
+um unermeßlich reich zu werden. Und blieb mit mühselig er­rackerten 
+50000 Franken als Krüppel in den Sielen hängen.
+
+François Villon vereinsamte abermals zu einem schweifenden
+Stern erster Größe. Denn über Rimbaud hinaus: immer noch
+leuchtet das Phänomen Villon. Der erste Dichter Frankreichs
+von Weltgeltung.
+
+Es tauchen auch heute noch Dichter auf, die, erfüll von der Sen­dung
+dieses furchtbaren Dämons, dennoch seine schöpferische
+Wesenheit mißverstanden haben und sich aus seinen einmaligen
+Vokabeln ein Eigenhaus auferbauen.
+
+In ihrem Blut ist zweifellos ein empörerisches Tempo, eine Blut­strömung 
+mit Weltgeruch, Abendröten und Karawanen, Börsen­krachs 
+und Barrikaden. Es nutzt aber, weil es noch dunkel an
+einem intelligiblen Ich klebt, nur der privaten Spannung, den
+formalen Prinzipien. Es greift nicht mit kaltgehirnlicher Funk­tion 
+in die Zeiten ein, es provoziert Sonderfälle, umgeht physische<a name="42"></a>
+Voraussetzungen
+und hebt die längst in sich vermorschten Kir­chentüren 
+aus den Angeln. Es greift nur den von Villon längst
+gegenständlich gemachten Mut zur Wahrheit auf und biegt ihn
+zu einen Feuerbogen sensationeller Überraschung um. Das Pa
+nikmachen, das uralte Erbübel germanischer Rasse, entlädt sich
+auf Gemüter der „Morgenpost“ und des „Lokalanzeigers“.
+
+Die Tageskritik, viel zu sehr eingespannt in das Geschirr fixer
+Berichterstattung, hat kaum Zeit für historische Forschung. Und
+nimmt Umdichtung, Schnellphotographie und zwanzigprozen­tigen 
+Verschnit für originale Leistung, klebt an der sachlichen
+Exekutierung der modischen Vokabel und hat für das atember­klemmende 
+Wachsein des ewig nörgelnden Abonnenten zu sor­gen. 
+Sie kann um die ungefähre Leistung des neuen Dichters
+nicht herum, weil sie immerhin noch instinktiv die Quelle fühlt,
+aus der sie floß und gesehen werden möchte. Aber auch von sol­chen
+geschickten Feuerwerkstechnikern, die mit den geheimnis­vollen 
+Zauberformeln mittelalterlicher Adepten das Sonnenspek
+trum zu Leuchtkugeln verpulvern und Überraschungsschreie in
+der Menge entfachen, Großkapitalisten werden in einem ein­zigen 
+Büchermonat und die höheren Gesellschaftssphären fre­quentieren, 
+ist die Sendung Villons nicht umzubringen. Er
+wirkt unablässig hinter der Szene, er deckt den Kern aller Ge­schehnisse 
+auf und zersetzt den Mythos der schönen Seele mit den
+Ätzstoffen einer wirklichen Sachlichkeit, die nicht karg ist, luft­knapp, 
+genestelt und sportgestähl, die aber ebenso witzig sein
+kann und ironisch, wie nachdenklich und eindringlich.
+
+<a name="43"></a>
+
+
+
 
 
