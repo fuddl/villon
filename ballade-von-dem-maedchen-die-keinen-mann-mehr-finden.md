@@ -45,3 +45,4 @@ und welken hin und werden abgehaun.
 Was in der Früh noch trug ein Purpurkleid,  
 fault abends schon im schwarzen Dreck am Zaun.
 
+<a name="97"></a>![Nachbildung einer Manuſkriptſeite](.gitbook/assets/Nachbildung_einer_Manuſkriptſeite.svg)
