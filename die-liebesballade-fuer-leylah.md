@@ -1,7 +1,7 @@
 # Die Liebesballade für Leylah
 
 <a name="102"></a>
-## Die Liebes-Ballade <br />für ein kleines Sigeunermädchen namens Leylah
+## Die Liebes-Ballade <br />für ein kleines Zigeunermädchen namens Leylah
 
 ¶ Als man mich verstieß ins Unbekannt,  
 warst du, schwarzes Tier, mein Vaterland.  
