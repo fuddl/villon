@@ -40,7 +40,7 @@ in dem Kabuff, in dem wir beide wohnen.
 
 ### Und dieſes Anhängsel <br />zur freundlichen Aufmunterung:
 
-Nun merkt es euch, wenn ihr für eine Nacht  
+¶ Nun merkt es euch, wenn ihr für eine Nacht  
 ein Mädchen sucht, das alles mit euch macht —:  
 Ihr Herrn, dann seid ihr uns willkommen  
 in dem Kabuff, in dem wir beide wohnen.
