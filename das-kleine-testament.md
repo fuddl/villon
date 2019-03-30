@@ -61,5 +61,39 @@ lag hinterm Busch und lachte sich kapott.
 
 ¶ Ich habe jetzt für alle Zeit genug von ihr  
 und fordere Gerechtigkeit.  
-Ich bin noch lange nicht ihr Trampeltier,  
-auch wenn sie nächtelang nach meiner Liebe schreit.
+Ich bin noch lange nicht ihr Trampeltier,    
+auch wenn sie nächtelang nach meiner Liebe schreit.  
+<a name="110"></a>Die weiße Larve lügt, wenn sie mich küßt  
+und wenn ich glaube, daß sie mich mit ihrer Liebe meint  
+schmeckt ihr Gebiß schon längst ein anderes Gelüst  
+und sagt: das ist doch gar nicht so gefährlich, wie es scheint!
+
+### Ⅶ
+
+¶ Verdammt! Sie hat mich dem Gericht  
+verraten um ein Silberstück  
+Die Narbe quer durch mein Gesicht,  
+auch die verdank ich ihr, und kann vom Glück  
+noch sagen, daß ich nicht das Augenlicht dabei verlor  
+Wer weiß, ob morgen nicht mein Frühstückswein  
+mit Gift veredelt ist, damit ich Tor  
+herniederfahr zu Wurm und Stein.
+
+### Ⅷ
+
+¶ Was bleibt mir anderes noch zu tun  
+als abzureisen Knall und Fall  
+Vielleicht erblüht mir bald ein neues Huhrn  
+in einem Bauernstall,  
+vielleicht auch reise ich mit einem Ruderboot  
+nach Samarkand,  
+und nähre mich von Affenbrot  
+und werde Elefant.
+
+### Ⅸ
+
+¶ Ich habe zu den wilden Tieren immer schon  
+mich hingesehnt. Ich habe, als der Herr mich schuf,  
+aus einem grauen Haufen Ton,
+
+
