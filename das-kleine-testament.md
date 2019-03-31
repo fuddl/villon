@@ -94,6 +94,35 @@ und werde Elefant.
 
 ¶ Ich habe zu den wilden Tieren immer schon  
 mich hingesehnt. Ich habe, als der Herr mich schuf,  
-aus einem grauen Haufen Ton,
+aus einem grauen Haufen Ton,  
+<a name="112"></a>Denn mit dem Sack, auf den ihrs abgesehen habt,  
+hat längst der Hunger aufgeräumt.  
+Ich war noch nie so ausgelaugt und abgeschabt.  
+Ich lobe die Kartoffeln, denn sie sind  
+in diesem Jahr so gut geraten, wie noch nie.  
+Ich freu mich, wenn sie braten, wie ein Kind,  
+und spüre kaum die Stiche in dem steifen Knie.
+
+### ⅩⅢ
+
+¶ Auf alle Fälle hat Villon sein Testament gemacht,  
+es ist, wie schon gesagt, nicht viel, was von ihm übrig bleibt,  
+jedoch genug, daß sich die Welt ins Fäustchen lacht  
+und eine Schmähschrift schreibt.  
+Das schönste Stück jedoch, mein Herz in Gold,  
+hab ich für meine Mutter reserviert.  
+Man lege es ihr steuerfrei und unverzollt  
+so um den Hals, daß sie's in Ewigkeit nicht mehr verliert.
+
+### ⅩⅣ
+
+¶ Auch wenn mein Leib schon längst zerfressen ist  
+mit einer Schar von Würmern drin  
+am Ende denkt man doch: wo du nicht bist,  
+Herr Jesus Christ, lebt man nur wie ein Vieh dahin  
+in diesem Sinn, ihr Freunde, Gute Nacht!  
+Wie leicht hat man sein bißchen Leib  
+für eine kleine Stunde Zeitvertreib  
+mit Wein und Weibern durchgebracht.
 
 
