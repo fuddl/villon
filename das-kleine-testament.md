@@ -9,8 +9,8 @@ sehr rüstig auf den Beinen war
 und durch die Landschaft fuhr, nicht wie ein üblicher Scholar  
 der heute betteln geht und morgen schon im Loch  
 bei Brot und Wasser brummt… o nein!  
-Villon war auch in diesem Falle zwar kein Tugendheld.
-Doch hat er sich noch nie mit einer Pulle Weirn  
+Villon war auch in diesem Falle zwar kein Tugendheld.  
+Doch hat er sich noch nie mit einer Pulle Wein  
 zum Abendbrot begnügt; er nahm auch Reisegeld.
 
 ### Ⅱ
