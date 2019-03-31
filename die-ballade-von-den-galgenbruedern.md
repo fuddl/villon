@@ -47,7 +47,7 @@ Gott wird uns bald in Jesu Namen
 erlösen von dem Galgenstrick,  
 von allem Übel, Amen!
 
-### Und ganz zuletzt <br />möge man diesen Stoßſeufzer noch hören :
+### Und ganz zuletzt <br />möge man dieſen Stoßſeufzer noch hören :
 
 ¶ Herr Jesu, der du Gnade ausschenkst allen:  
 errett uns aus des Teufels Höllenkrallen  
