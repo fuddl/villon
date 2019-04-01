@@ -54,6 +54,16 @@ der schwarze Teufel aus dem Höllenreich,
 da hat man grad die Schelme abgeschnitten  
 und warf sie schnell den Fischen hin im Teich.
 
+<a name="124"></a>
+### Eine kleine Zugabe <br />ſtiftet Villon zum Abgewöhnen
+
+¶ Ein schwarzer Efeu frißt sich tief  
+in meine Wand hinein. Ich hänge schief  
+vom Mond herab. Ich rinne hin  
+zum Schleim des Wurms. Ich wurme auch.  
+Und wachs herauf aus einem neuen Bauch  
+noch wilder als ich bin.
+
 ---
 
 <p id="fussnote">* Zweite, von G. Paris mitgeteilte Fassung der Ballade von den
