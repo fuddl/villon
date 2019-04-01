@@ -1,6 +1,6 @@
 # Die Galgenballade
 <a name="122"></a>
-## Die Galgen-Ballade, die Villon seinen Freunden zum Abschied gedichtet hat[*](#fussnote)
+## Die Galgen⸗Ballade, die Villon ſeinen Freunden zum Abſchied gedichtet hat[*](#fussnote)
 
 ¶ Ach, Brüder, laßt uns hier nur ruhig schweben  
 am langen Strick. Wir haben sowieso von diesem Hundeleben  
@@ -47,7 +47,7 @@ so klein und häßlich wie im Mutterschoß.
 Wenn erst im Wald die Eule dreimal schreit,  
 ist auch der Teufel nicht mehr weit.
 
-### Notwendige Nachschrift
+### Notwendige Nachſchrift
 
 ¶ Und als er um die Mitternacht kam angeritten,  
 der schwarze Teufel aus dem Höllenreich,  
