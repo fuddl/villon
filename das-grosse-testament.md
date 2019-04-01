@@ -253,5 +253,37 @@ in ihm wär Glanz von Gottes Angesicht.
 Ich will ihm kinderfromm die Hände falten.  
 Und hat mein Bitten auch nicht viel Gewicht,  
 so bitt ich doch: Herr Jesu, nimm ihn gern  
-<a name="137"></a>
+<a name="137"></a>als euch, die ihr vor bunten Bildern kniet  
+und, wenn es blitzt, in dunkle Keller flieht.
+
+### ⅩⅩⅤⅡ
+
+¶ Oft lachen sie mich aus, daß mir vom Leilb  
+dic Kleider faulen. Ist mein Zeitvertreib:  
+wenn andre schön in Gold und Silber prunken,  
+dann zeig ich meine Schwären auf, die Brust voll Kraut,  
+und taumle in die Kirchen süß betrunken.  
+Maria bleibt mir doch die liebe Braut  
+wenn ich auch ausgestoßen werde nackt und bloß  
+Gott ist auch unter Bäumen groß.
+
+### ⅩⅩⅧ
+
+¶ Im Wald, da ruht ganz tief ein stiller See,  
+sind schön Gewürm darin, und wenn ich tiefer geh:  
+der munteren Fische grün und goldne Farben.  
+Da wünsch ich mir schon lang die letzte Ruh,  
+da sollen sein gebettet meine Garben  
+Ich steh schon lange mit dem Tod auf du und  
+Ich brauch auf keinen Weiser mehr zu schaun,  
+ich suche nur ein Loch im Zaun.
+
+### ⅩⅩⅨ
+
+¶ Mich freut kein Haus, mich freut schon lange nichts.  
+Mein Herz, wie eine Dornenkrone stichts.  
+Ich bin nicht Gottes liebster Sohn gewesen,  
+ich ging dahin, wie mich die Laune grade trieb.  
+Mich hätten gern Zigeuner aufgelesen,
+
 
