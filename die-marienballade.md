@@ -33,7 +33,7 @@ Gesang der Nonnen und der Mönche Bußchoral.
 Im Kloster, ja, da ist das Paradies so nah,  
 und auch der Hölle Feuer angefacht.  
 Das eine macht mich froh in kalter Mitternacht,  
-das andere, mit Blitz und Donnerton, geschah
+das andere, mit Blitz und Donnerton, geschah  
 schon tausendmal in mir. Ich aber will noch höher wehn  
 und kann doch keinen Schrit weit ohne deinen Segen gehn.
 
