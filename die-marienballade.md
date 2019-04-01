@@ -1,6 +1,6 @@
 # Die Marienballade
 <a name="127"></a>
-## Eine Marien-Ballade <br />die Villon seiner Mutter für den Sausgebrauch gedichtet hat
+## Eine Marien-Ballade <br />die Villon ſeiner Mutter für den Sausgebrauch gedichtet hat
 
 ¶ Du Himmelskönigin im Gold und Blau der Ewigkeit,  
 du Schmerzensweib und Leid von meinem Leid:  
