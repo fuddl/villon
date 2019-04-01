@@ -25,7 +25,7 @@ die bösen Träume noch und wollen nicht begreifen,
 daß auch die runde Welt ein Ende hat.  
 Es grünen Disteln schon und Nesseln in den Eingeweiden,  
 die mögen wohl den Wurm gut leiden  
-weil er so weiß ist und so glatt.  
+<a name="123"></a>weil er so weiß ist und so glatt.  
 Wenn erst im Wald die Eule dreimal schreit,  
 ist auch der Teufel nicht mehr weit.
 
