@@ -447,7 +447,7 @@ ein Räuberlied… und weiter nix.
 <a name="144"></a>
 ### ⅩⅬⅣ
 
-Denn so allmählich kommt der Tag heran,  
+¶ Denn so allmählich kommt der Tag heran,  
 wo ich vielleicht nicht mehr in Ruhe kacken kann  
 geschweige Verse dichten für den Hausgebrauch  
 Vor meiner Türe horcht seit hundert Jahren schon  
@@ -458,7 +458,7 @@ Und als ich ihm nichts gab, hat mich das Aas verflucht.
 
 ### ⅩⅬⅤ
 
-Aus diesem Grunde will ich endlich reinen Tisch  
+¶ Aus diesem Grunde will ich endlich reinen Tisch  
 mit meinem Dasein machen. Vicles riecht nicht mehr ganz frisch  
 und kommt gleich auf den Mist.  
 Den Rest verschreibe ich zu einem Teil  
@@ -469,12 +469,55 @@ mit dem er selber sich erlöset vom Genick.
 
 ### ⅩⅬⅥ
 
-Ich will auch dieses letzte Mal  
+¶ Ich will auch dieses letzte Mal  
 mit einer schönen runden Zahl  
 die Kirche unserer Lieben Frau erfreun.  
 Dafür soll mir an jedem Allerseclentag  
 die hohe Geistlichkeit mit Dschindera und Paukenschlag  
-ganz frische Jungfernhäute auf die Nase streun,  
-damit ich von dem weißen Muttertier
+ganz frische Jungfernhäute auf die Nase streun,    
+damit ich von dem weißen Muttertier  
+<a name="145"></a>beileibe nicht den Nachgeschmack verlier.
 
-<a name="145"></a>
+### ⅩⅬⅦ
+
+¶ Was schließlich übrig bleibt von meinem Hab und Gut,  
+das soll man einem Bettler in den Hut   
+hinein tun. Doch wenn dieser Tropf  
+vielleicht gar , Dankschön" sagt  
+und nach dem Spender fragt:  
+dann haut ihm mit dem Brett eins auf den Kopf.  
+Ich habe nie gefragt, woher es kam,  
+wenn ich mir Geld aus fremden Kassen nahm.
+
+### ⅩⅬⅧ
+
+¶ Ich hätte mancherlei auf meinem Herzen noch  
+Doch wenn man so behindert ist, wie ich in diesem Loch,  
+dann denkt man mehr, wie das wird sein,  
+wenn Franz Villon sein Köpfchen in die Schlinge steckt  
+und in den grünen Himmel seine Zunge bleckt.  
+Auch hab ich Sorge, daß mir aus dem Hosenbein  
+was Nasses fällt. Das kommt bei solchem Sturz  
+wohl öfter vor… doch lieber wäre mir ein trockner Furz.
+
+### ⅩⅬⅨ
+
+¶ Auch wegen dieser Todesart an sich  
+bin ich mir noch nicht klar, ob ich  
+nicht etwa protestieren soll.  
+Es zeigt wahrhaftig nicht von viel Respekt  
+vor Gottes Ebenbild, daß man es so verdreckt  
+dem Herrn zurückgibt. Doch die Welt ist voll  
+<a name="146"></a>von Unkultur… drum will ich auch nicht mehr  
+den Kopf mir kratzen für dies Hammelheer.
+
+### Ⅼ
+
+¶ Ich sause ab, ich sage gern ade.  
+Ich trage bald ein Kleid, so weiß wie Schnee.  
+Es braucht nicht grad der Himmel sein,  
+wo man mir Wohnung gibt…  
+Ich habe einmal ein Zigeunermensch geliebt;  
+in ihren Kral, da tret ich leise ein.  
+Und will sie, daß ich ihr die Zähne wieder putzen tu  
+mit meinem Maul… dann, liebe Seele, hast du endlich Ruh.
