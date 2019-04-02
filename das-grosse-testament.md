@@ -285,5 +285,130 @@ Mein Herz, wie eine Dornenkrone stichts.
 Ich bin nicht Gottes liebster Sohn gewesen,  
 ich ging dahin, wie mich die Laune grade trieb.  
 Mich hätten gern Zigeuner aufgelesen,
+<a name="139"></a>doch war ein Schoß, wo ich verborgen blieb.
+Jetzt hat die alte Frau ganz weißes Haar
+und ist allhier schon neunzig Sorgenjahr.
+
+### ⅩⅩⅩ
+
+¶ Auch Laster sind von Gott gesandt und gut.
+Wohl dem, der sie bis zu dem bitteren Ende tut.
+Wer sie nicht kennt, der kann auch nicht von Sünden
+erlöset werden durch des Herren Blut.
+Woher ich kam, will ich auch wieder münden
+Im Mutterschoß: da ist es, wo man schöner ruht
+als in dem Freudenbett der Königin,
+denn solche Nächte gehen oft wie ein Begräbnis hin.
+
+### ⅩⅩⅩⅠ
+
+¶ Wer sterben muß, ach, der stirbt hin mit Weh:  
+im Winterwald beim Mond im schwarzen Schnee.  
+Ist keine Schwester da mit Gall und Essigschwamm,  
+wird keiner dir den letzten Platz wegnehmen,  
+und wo du stirbst, da wird man in den Stamm  
+drei Kreuze schneiden und den Wald verfemen.  
+Zur Erde wird dein Fleischernes sobald.  
+Und morgen schon die große Jagd darüber schallt.  
+
+### ⅩⅩⅩⅡ
+
+¶ An mir ist wirklich nichts verloren hier.  
+Doch du, du schönes weißes Menschentier,  
+mir nachgesprungen, weil dich schnöd verfiührte   
+ein arger Lump mit Federhut und Schwert  
+<a name="140"></a>und nicht zum Eheweib vor Gott erkürte:  
+O, du bist besserer Himmelfahrt schon wert.  
+Dir gäbe Gott der Paradiese schönsten Lohn:  
+vom Haupt Maries die goldene Himmelskron.
+
+### ⅩⅩⅩⅢ
+
+¶ Dein Bild im Angesicht, so schlaf ich ein.  
+Es wird nur eine kleine Reise sein,  
+da werden mir die Augen überlaufen  
+so hoch von Sternentier und Sommerwind  
+und werden andre Winde schnaufen  
+und wieder sein so rein wie Kinder sind.  
+Eh ich mich weiter elend noch verwein:  
+o schönes Reh: bald wirst du mein Gespiele sein.
+
+### ⅩⅩⅩⅣ
+
+¶ Hab nun die Augen leise umgedreht  
+und auch mein Herz spricht schnell noch ein Gebet.  
+So dunkel ist es auf der Erde worden,  
+so leise hebt ein guter Wind mich auf;  
+ich fahre aus dem winterweißen Norden  
+mit Engelchören und mit Feuerlauf  
+in eine schöne grüne Ewigkeit,  
+und werde tragen ganz von Gold ein Königskleid.
+
+### ⅩⅩⅩⅤ
+
+¶ Ich sage nicht, daß jedem solch ein Glücksgenuß  
+verliehen ward vom lieben Gott. Wie mancher muß  
+mit weniger Sünden sich bescheiden und sein Haus  
+<a name="141"></a>wohl auferbaun nach der Gesetze Plan.
+Muß sich mit Salben das Gesicht beschmieren,
+den Buckel krümme und noch weißer als ein Schwan
+den Ehrensessel in der Kirche zieren.
+Dafür singt auch an seinem Sterbebett,
+auf Wunsch ein Nonnen oder Mönchsquartett.
+
+### ⅩⅩⅩⅥ
+
+¶ Wieviel ist nur für Knaben schön und gut
+und albern, wenn ein Greis sich damit wichtig tut.
+Seht, wie der Affe da das Maul aufreißt,
+wie seine kleinen Augen sich verdrehn,
+wenn sich kein Mädchen mehr in seinen Wurm verbeißt.
+Und wäre sie vom Kopf bis zu den Zehn
+ein abgegrastes Hurenweib:
+selbst die wär noch zu schad fir solchen Zeitvertreib.
+
+### ⅩⅩⅩⅦ
+
+¶ Ich meine nämlich jetzt den Herrn Ronsard,
+der ehedem mein saubrer Hauswirt war
+Für jedes Mädchen, das in meinen Laden kroch,
+hab ich ihm extra einen Kümmel schmeißen müssen.
+Dafür hats in dem feuchten Hundeloch
+so arg nach Mist gerochen, daß mir oft das Küssen
+vergangen ist. Dabei hab ich besonders viel
+mir eingebildet auf mein Flötenspiel
+
+### ⅩⅩⅩⅧ
+
+¶ Der Herr Ronsard, verdamm mich, der war gleich  
+<a name="142"></a>zur Stelle und bemerkte, daß er reich  
+versehen sei mit allem, was man so in einer Nacht  
+an Gut und Blut verbraucht. (Er hatte, notabene,  
+fünf Ehefrauen schon ins Grab gebracht  
+und immer noch war seine Bogensehne  
+so scharf gestrafft.) Das alte Schweirn  
+fraß nur Fasanenfleisch und soff uralten Ungarwein.
+
+### ⅩⅩⅩⅨ
+
+Doch lassen wir das Thema jetzt,  
+sonst fühlt am Ende noch ein alter Sünder sich verletzt.  
+Und hetzt den Staatsanwalt mir auf den Hals:  
+von wegen Unzucht, Völlerei und Afierkunst.  
+Ich habe nämlich keinen blauen Dunst  
+vom Paragraphenkram, und kenne bestenfalls  
+den Henker, dem ich einmal schon mit knapper Not  
+entwichen bin… ich dank für solchen Tod!
+
+### ⅩⅬ
+
+Ich will mich lieber splitternackt  
+noch cinmal in ein rotes Kleefeld legen  
+Es ist so schön… (du denkst: wie abgeschmackt!)  
+wenn rudelhaft die Wolken durch den Himmel fegen.  
+Mir aber schmeckt nun einmal dieser Zug  
+ins Tierbereich. Was drüber ist… das ist Betrug  
+an jenem Drüsensaft,  
+der uns den Fiedelbogen strafft.
 
 
