@@ -391,7 +391,7 @@ fraß nur Fasanenfleisch und soff uralten Ungarwein.
 
 ### ⅩⅩⅩⅨ
 
-Doch lassen wir das Thema jetzt,  
+¶ Doch lassen wir das Thema jetzt,  
 sonst fühlt am Ende noch ein alter Sünder sich verletzt.  
 Und hetzt den Staatsanwalt mir auf den Hals:  
 von wegen Unzucht, Völlerei und Afierkunst.  
@@ -402,7 +402,7 @@ entwichen bin… ich dank für solchen Tod!
 
 ### ⅩⅬ
 
-Ich will mich lieber splitternackt  
+¶ Ich will mich lieber splitternackt  
 noch cinmal in ein rotes Kleefeld legen  
 Es ist so schön… (du denkst: wie abgeschmackt!)  
 wenn rudelhaft die Wolken durch den Himmel fegen.  
@@ -410,5 +410,40 @@ Mir aber schmeckt nun einmal dieser Zug
 ins Tierbereich. Was drüber ist… das ist Betrug  
 an jenem Drüsensaft,  
 der uns den Fiedelbogen strafft.
+
+<a name="143"></a>
+### ⅩⅬⅠ
+
+¶ Ich bin wahrhaftig nicht der Herr Ästhet,  
+der immer stöhnt, wenns nicht nach seiner Pfeife geht.  
+Ich denk, der Herrgott hat uns allesamt aus dem Morast  
+herausgefischt und schön zu seinem Ebenbild verpaßt.  
+Es liegt an euch, wenn mir das Leben schöner blüht  
+Ich habe schon so viel Geduld  
+mit euch gehabt, daß mir noch immerzu der Schädel glüht.
+
+### ⅩⅬⅡ
+
+¶ Ich kann auch nichts dafür, daß mich  
+die jungen Mädchen oft für strammes Astwerk halten,  
+wenn sie auf ihrem Strich  
+sich gern in die Gesträuche falten.  
+Ich habe manchmal selber nicht kapiert,  
+daß sie von mir zu Weihnacht schwanger gingen.  
+Ich weiß wohl, daß mir öfter Schlimmeres passiert;  
+nur spricht man nicht von solchen Dingen.
+
+### ⅩⅬⅢ
+
+¶ Der König denkt in diesem Punkt zurzeit  
+ein wenig freier wohl und schreibt sein Leid  
+und auch die Lust mit einem goldenen Kiel  
+ins Tagebuch. Tät Franz Villon dies auch,  
+dann wär es aus mit seinem faulen Bauch  
+Denn grade der, der ist die Hauptperson im Spiel.  
+Ich singe lieber zur Harmonika noch fix  
+ein Räuberlied... und weiter nix.
+
+<a name="144"></a>
 
 
