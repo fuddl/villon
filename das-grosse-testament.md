@@ -209,7 +209,7 @@ weil ich so räudig bin und so zerlassen.
 Morsch sind im Maul die Zähne mir schon sehr  
 und kann auch keinen Schritt mehr richtig fassen.  
 O, käme doch das weiße Reh daher;  
-mein Herz, vielleicht täts wieder cinen guten Schlag  
+mein Herz, vielleicht täts wieder cinen guten Schlag   
 und läge bei dem Reh so zart im Rosenhag.
 
 ### ⅩⅩ
@@ -291,13 +291,13 @@ und ist allhier schon neunzig Sorgenjahr.
 
 ### ⅩⅩⅩ
 
-¶ Auch Laster sind von Gott gesandt und gut.
-Wohl dem, der sie bis zu dem bitteren Ende tut.
-Wer sie nicht kennt, der kann auch nicht von Sünden
-erlöset werden durch des Herren Blut.
-Woher ich kam, will ich auch wieder münden
-Im Mutterschoß: da ist es, wo man schöner ruht
-als in dem Freudenbett der Königin,
+¶ Auch Laster sind von Gott gesandt und gut.  
+Wohl dem, der sie bis zu dem bitteren Ende tut.  
+Wer sie nicht kennt, der kann auch nicht von Sünden  
+erlöset werden durch des Herren Blut.  
+Woher ich kam, will ich auch wieder münden  
+Im Mutterschoß: da ist es, wo man schöner ruht  
+als in dem Freudenbett der Königin,  
 denn solche Nächte gehen oft wie ein Begräbnis hin.
 
 ### ⅩⅩⅩⅠ
@@ -441,9 +441,40 @@ und auch die Lust mit einem goldenen Kiel
 ins Tagebuch. Tät Franz Villon dies auch,  
 dann wär es aus mit seinem faulen Bauch  
 Denn grade der, der ist die Hauptperson im Spiel.  
-Ich singe lieber zur Harmonika noch fix  
-ein Räuberlied... und weiter nix.
+Ich singe lieber zur Harmonika noch fix   
+ein Räuberlied… und weiter nix.
 
 <a name="144"></a>
+### ⅩⅬⅣ
 
+Denn so allmählich kommt der Tag heran,  
+wo ich vielleicht nicht mehr in Ruhe kacken kann  
+geschweige Verse dichten für den Hausgebrauch  
+Vor meiner Türe horcht seit hundert Jahren schon  
+die Enkelschar auf den gewissen Ton  
+vom letzten Loch.. der Teufel wartet auch  
+darauf und hat sogar um Vorschuß nachgesucht.  
+Und als ich ihm nichts gab, hat mich das Aas verflucht. 
 
+### ⅩⅬⅤ
+
+Aus diesem Grunde will ich endlich reinen Tisch  
+mit meinem Dasein machen. Vicles riecht nicht mehr ganz frisch  
+und kommt gleich auf den Mist.  
+Den Rest verschreibe ich zu einem Teil  
+der Nonne, die mit zwanzig Jahren noch ganz heil  
+am Bauch geblieben ist.  
+Und wieder einen Teil erhält der Henker für den Strick,  
+mit dem er selber sich erlöset vom Genick.
+
+### ⅩⅬⅥ
+
+Ich will auch dieses letzte Mal  
+mit einer schönen runden Zahl  
+die Kirche unserer Lieben Frau erfreun.  
+Dafür soll mir an jedem Allerseclentag  
+die hohe Geistlichkeit mit Dschindera und Paukenschlag  
+ganz frische Jungfernhäute auf die Nase streun,  
+damit ich von dem weißen Muttertier
+
+<a name="145"></a>
