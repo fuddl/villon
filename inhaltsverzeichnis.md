@@ -122,6 +122,6 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [146]: nachschrift-mein-begraebnis-betreffend.md "Notwendige Nachschrift, mein Begräbnis betreffend"
 
-[148]: grabgebet.md "Notwendige Anweisubf, welches Gebet ihr an meinem Grabe zu sprechen habt:"
+[148]: grabgebet.md "Notwendige Anweisung, welches Gebet ihr an meinem Grabe zu sprechen habt"
 
 [149]: kleine-bibliographie.md
