@@ -3,7 +3,7 @@
 # François Villon / Leben, Werk und Wertung
 
 > „Villon sut le premier, dans ces siècles grossiers
-> Débrouiller l'art confus de nos vicux romanciers.‘’  
+> Débrouiller l'art confus de nos vicux romanciers.“ 
 > — Boileau
 
 > „Peu de Villons en bon scavoir
