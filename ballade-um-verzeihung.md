@@ -40,10 +40,10 @@ das werden sie mir wohl verzeihn.
 
 ### Zum Schluß <br />noch dieses Anhängſel gratis und franko
 
-Man schlag dem ganzen Lumpenpack  
+¶ Man schlag dem ganzen Lumpenpack  
 das Maul mit einem Hammer kurz und klein.  
 Was übrig bleibt, das wäscht der Regen mir vom Frack.  
-Ich bin Villon! Das braucht mir keiner hier verzeihr.
+Ich bin Villon! Das braucht mir keiner hier verzeihn.
 
 
 
