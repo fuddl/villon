@@ -78,50 +78,51 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [80]: die-ballade-von-den-schoenen-frauen-von-paris.md
 
-[82]: die-ballade-von-den-drei-coquillards.md
+[82]: die-ballade-von-den-drei-coquillards.md "Eine kleine Räuber⸗Ballade
+von den drei Coquillards"
 
-[84]: die-ballade-vom-wohlergehn.md
+[84]: die-ballade-vom-wohlergehn.md "Die Ballade vom Wohlergehn auf dieſer elenden Welt…"
 
-[86]: die-ballade-an-den-koenig.md
+[86]: die-ballade-an-den-koenig.md "Eine nette Ballade, Villon dem König aus der Verbannung ſandte"
 
-[89]: die-ballade-von-der-klempnersfrau.md
+[89]: die-ballade-von-der-klempnersfrau.md "Die Jammerballade von einer alten Klempnersfrau"
 
-[92]: die-ballade-einem-barbier.md
+[92]: die-ballade-einem-barbier.md "Die Ballabe von einem netten kleinen Barbier"
 
-[95]: ballade-von-dem-maedchen-die-keinen-mann-mehr-finden.md
+[95]: ballade-von-dem-maedchen-die-keinen-mann-mehr-finden.md "Die Ballade von den Mädchen, die keinen Mann mehr finden"
 
-[98]: die-ballade-an-den-herzog-von-burgund.md
+[98]: die-ballade-an-den-herzog-von-burgund.md "Eine nette kleine Ballabe, die Meister villon, als er dringend Geld brauchte, dem serzog von Burgund überreichen ließ"
 
-[100]: die-ballade-von-der-unzufriedenheit.md
+[100]: die-ballade-von-der-unzufriedenheit.md "Die Ballade von der ewigen Unzufriedenheit"
 
-[102]: die-liebesballade-fuer-leylah.md
+[102]: die-liebesballade-fuer-leylah.md "Die Liebes-Ballade für ein kleines Zigeunermädchen namens Leylah"
 
-[104]: die-zuhaelterballade.md
+[104]: die-zuhaelterballade.md "Die Zuhälter-Ballade von villon und seiner dicken Margot"
 
-[106]: die-raeuberballade.md
+[106]: die-raeuberballade.md "Die Räuber Ballade vom roten Coquillard"
 
-[108]: das-kleine-testament.md
+[108]: das-kleine-testament.md "Das kleine Testament (Bruchſtück)"
 
-[113]: die-bettelballade-fuer-jean-cotart.md
+[113]: die-bettelballade-fuer-jean-cotart.md "Eine Bettel⸗Ballade für meinen armen Bruder Jean Cotart"
 
-[115]: vierzeiler.md
+[115]: vierzeiler.md "Vierzeiler, den Villon unter ſein Todesurteil ſchrieb"
 
-[116]: appell-an-den-reichstag.md
+[116]: appell-an-den-reichstag.md "Eine Ballade vom Appell Villons an den Reichstag"
 
-[118]: die-ballade-von-den-galgenbruedern.md
+[118]: die-ballade-von-den-galgenbruedern.md "Eine Ballabe von den Galgenbrüdern"
 
-[120]: kleine-ballade-von-der-maeusefrau.md
+[120]: kleine-ballade-von-der-maeusefrau.md "Eine kleine Ballabe von der Mäuſefrau, die in Villons Zelle Junge bekam"
 
-[122]: die-galgenballade.md
+[122]: die-galgenballade.md "Die Galgen⸗Ballade, die Villon ſeinen Freunden zum Abſchied gedichtet hat"
 
-[125]: ballade-um-verzeihung.md
+[125]: ballade-um-verzeihung.md "Eine Ballade, mit der Meister Villon seine lieben Mitmenschen um Verzeihung bittet"
 
-[127]: die-marienballade.md
+[127]: die-marienballade.md "Eine Marien-Ballade die Villon ſeiner Mutter für den Sausgebrauch gedichtet hat"
 
-[129]: das-grosse-testament.md
+[129]: das-grosse-testament.md "Das große Teſtament (Bruchſtück)"
 
-[146]: nachschrift-mein-begraebnis-betreffend.md
+[146]: nachschrift-mein-begraebnis-betreffend.md "Notwendige Nachſchrift, mein Begräbnis betreffend"
 
-[148]: grabgebet.md
+[148]: grabgebet.md "Notwendige Anweiſubf, welches Gebet ihr an meinem Grabe zu sprechen habt:"
 
 [149]: kleine-bibliographie.md
