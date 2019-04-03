@@ -48,35 +48,35 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [\*]: #fussnote "Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gleichzeitigen Sammelwerken entnommen und aus der Urform übertragen worden."
 
-[5]: francois-villon/leben-werk-wertung.md
+[5]: francois-villon/leben-werk-wertung.md "François Villon / Leben, Werk und Wertung"
 
-[56]: eine-ballade-fuer-den-hausgebrauch-im-winter.md
+[56]: eine-ballade-fuer-den-hausgebrauch-im-winter.md "Eine Ballade für den Hausgebrauch im Winter"
 
-[60]: die-sommerballade.md
+[60]: die-sommerballade.md "Die Sommerballade"
 
-[62]: eine-trauerballade-fuer-cylaea.md
+[62]: eine-trauerballade-fuer-cylaea.md "Eine Trauer-Ballade um meine treuloſe Freundin Cylaea"
 
-[64]: die-ballade-von-den-drei-landsstreichern.md
+[64]: die-ballade-von-den-drei-landsstreichern.md "Die Ballade von den drei Landsstreichern"
 
-[66]: vierzeiler-an-margot.md
+[66]: vierzeiler-an-margot.md "Vierzeiler an Margot den der Villon seiner Kleinen Margot schrieb"
 
-[67]: eine-ballade-fuer-mira.md
+[67]: eine-ballade-fuer-mira.md "Eine Ballade gedichtet für Mira l՚Ydolle"
 
-[68]: eine-kleine-ballade-fuer-florestan.md
+[68]: eine-kleine-ballade-fuer-florestan.md "Eine kleine Ballade vom Prinzen Florestan"
 
-[70]: die-ballade-von-den-frauen-des-altertums.md
+[70]: die-ballade-von-den-frauen-des-altertums.md "Die Ballade von den Frauen des Altertums"
 
-[72]: die-ballade-von-den-vogelfreien.md
+[72]: die-ballade-von-den-vogelfreien.md "Die Ballade von den Vogelfreien"
 
-[74]: die-ballade-vom-schlechten-lebenswandel.md
+[74]: die-ballade-vom-schlechten-lebenswandel.md "Die Ballade vom schlechten Lebenswandel"
 
-[75]: die-ballade-von-der-schoenen-stadt-moorah.md
+[75]: die-ballade-von-der-schoenen-stadt-moorah.md "Die Ballade von der schönen Stadt Moorah"
 
-[77]: eine-kleine-liebesballade-fuer-jeanne-cul-de-quee.md
+[77]: eine-kleine-liebesballade-fuer-jeanne-cul-de-quee.md "Eine kleine Liebesballade gedichtet für Jeanne Cul de Quée"
 
-[78]: eine-verliebte-ballade-fuer-ysabeau-daussigny.md
+[78]: eine-verliebte-ballade-fuer-ysabeau-daussigny.md "Eine verliebte Ballade für Ysabeau d'Aussigny"
 
-[80]: die-ballade-von-den-schoenen-frauen-von-paris.md
+[80]: die-ballade-von-den-schoenen-frauen-von-paris.md "Die Ballade von den schönen Frauen von Paris"
 
 [82]: die-ballade-von-den-drei-coquillards.md "Eine kleine Räuber-Ballade von den drei Coquillards"
 
