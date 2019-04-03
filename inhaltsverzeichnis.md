@@ -2,11 +2,11 @@
 
 |     |                                                                                                | Seite |
 | :-- | :--------------------------------------------------------------------------------------------- | ----: |
-|     | [François Villon, sein Leben und sein Werk](francois-villon/leben-werk-wertung.md)             |     5 |
+|     | [François Villon, sein Leben und sein Werk][5]                                                 |   [5] |
 |     | Faksimile der Titelseite der ersten Ausgabe                                                    |    53 |
 |     | Une fois me dictes ouy                                                                         |    55 |
-| \*  | [Eine Ballade für den Hausgebrauch im Winter](eine-ballade-fuer-den-hausgebrauch-im-winter.md) |    56 |
-| \*  | [Die Sommerballade](die-sommerballade.md)                                                      |    60 |
+| \*  | [Eine Ballade für den Hausgebrauch im Winter][56]                                              |  [56] |
+| \*  | [Die Sommerballade][60]                                                                        |  [60] |
 | \*  | Eine Trauerballade für Cylaea                                                                  |    62 |
 | \*  | Die Ballade von den drei Landsstreichern                                                       |    64 |
 | \*  | Vierzeiler an Margot                                                                           |    66 |
@@ -45,3 +45,7 @@
 |     | Kleine Bibliographie                                                                           |   149 |
 
 Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gleichzeitigen Sammelwerken entnommen und aus der Urform übertragen worden.
+
+[5]: francois-villon/leben-werk-wertung.md
+[56]: eine-ballade-fuer-den-hausgebrauch-im-winter.md
+[60]: die-sommerballade.md
