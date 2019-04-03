@@ -86,7 +86,7 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [92]: die-ballade-einem-barbier.md
 
-[95]: ballade-von-dem-maedchen,-die-keinen-mann-mehr-finden.md
+[95]: ballade-von-dem-maedchen-die-keinen-mann-mehr-finden.md
 
 [98]: die-ballade-an-den-herzog-von-burgund.md
 
