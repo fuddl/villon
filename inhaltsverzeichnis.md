@@ -3,8 +3,8 @@
 |     |                                                            | Seite |
 | :-- | :--------------------------------------------------------- | ----: |
 |     | [François Villon, sein Leben und sein Werk][5]             |   [5] |
-|     | Faksimile der Titelseite der ersten Ausgabe                |  [53] |
-|     | Une fois me dictes ouy                                     |  [55] |
+|     | Faksimile der Titelseite der ersten Ausgabe                |   53  |
+|     | Une fois me dictes ouy                                     |   55  |
 | \*  | [Eine Ballade für den Hausgebrauch im Winter][56]          |  [56] |
 | \*  | [Die Sommerballade][60]                                    |  [60] |
 | \*  | [Eine Trauerballade für Cylaea][62]                        |  [62] |
@@ -53,3 +53,38 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 [60]: die-sommerballade.md
 
 [62]: eine-trauerballade-fuer-cylaea.md
+
+[66]: #todo
+[67]: #todo
+[68]: #todo
+[70]: #todo
+[72]: #todo
+[74]: #todo
+[75]: #todo
+[77]: #todo
+[78]: #todo
+[80]: #todo
+[82]: #todo
+[84]: #todo
+[86]: #todo
+[89]: #todo
+[92]: #todo
+[95]: #todo
+[98]: #todo
+[100]: #todo
+[102]: #todo
+[104]: #todo
+[106]: #todo
+[108]: #todo
+[113]: #todo
+[115]: #todo
+[116]: #todo
+[118]: #todo
+[120]: #todo
+[122]: #todo
+[125]: #todo
+[127]: #todo
+[129]: #todo
+[146]: #todo
+[148]: #todo
+[149]: #todo
