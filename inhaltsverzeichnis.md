@@ -52,4 +52,4 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [60]: die-sommerballade.md
 
-[62]: eine-trauerballade-fuer-cylaea
+[62]: eine-trauerballade-fuer-cylaea.md
