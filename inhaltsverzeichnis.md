@@ -72,7 +72,7 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [77]: eine-kleine-liebesballade-fuer-jeanne-cul-de-quee.md
 
-[78]: eine-verliebte-ballade-fuer-ysabeau-d'aussigny.md
+[78]: eine-verliebte-ballade-fuer-ysabeau-daussigny.md
 
 [80]: die-ballade-von-den-schoenen-frauen-von-paris.md
 
