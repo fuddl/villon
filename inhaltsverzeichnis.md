@@ -31,12 +31,12 @@
 |     | [Die Zuhälterballade][104]                                 | [104] |
 | \*  | [Die Räuberballade][106]                                   | [106] |
 |     | [Das kleine Testament][108]                                | [108] |
-|     | [Die Bettelballade für Jean Cotart]][113]                  | [113] |
+|     | [Die Bettelballade für Jean Cotart][113]                   | [113] |
 |     | [Vierzeiler][115]                                          | [115] |
 |     | [Appell an den Reichstag][116]                             | [116] |
 |     | [Die Ballade von den Galgenbrüdern][108]                   | [118] |
 | \*  | [Kleine Ballade von der Mäusefrau][120]                    | [120] |
-|     | [Die Galgenballade][112]                                   | [122] |
+|     | [Die Galgenballade][122]                                   | [122] |
 |     | [Ballade um Verzeihung][125]                               | [125] |
 |     | [Die Marienballade][127]                                   | [127] |
 |     | [Das Große Testament][129]                                 | [129] |
@@ -54,37 +54,73 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [62]: eine-trauerballade-fuer-cylaea.md
 
-[66]: #todo
-[67]: #todo
-[68]: #todo
-[70]: #todo
-[72]: #todo
-[74]: #todo
-[75]: #todo
-[77]: #todo
-[78]: #todo
-[80]: #todo
-[82]: #todo
-[84]: #todo
-[86]: #todo
-[89]: #todo
-[92]: #todo
-[95]: #todo
-[98]: #todo
-[100]: #todo
-[102]: #todo
-[104]: #todo
-[106]: #todo
-[108]: #todo
-[113]: #todo
-[115]: #todo
-[116]: #todo
-[118]: #todo
-[120]: #todo
-[122]: #todo
-[125]: #todo
-[127]: #todo
-[129]: #todo
-[146]: #todo
-[148]: #todo
-[149]: #todo
+[64]: die-ballade-von-den-drei-landsstreichern.md
+
+[66]: vierzeiler-an-margot.md
+
+[67]: eine-ballade-fuer-mira.md
+
+[68]: eine-kleine-ballade-fuer-florestan.md
+
+[70]: die-ballade-von-den-frauen-des-altertums.md
+
+[72]: die-ballade-von-den-vogelfreien.md
+
+[74]: die-ballade-vom-schlechten-lebenswandel.md
+
+[75]: die-ballade-von-der-schoenen-stadt-moorah.md
+
+[77]: eine-kleine-liebesballade-fuer-jeanne-cul-de-quée.md
+
+[78]: eine-verliebte-ballade-fuer-ysabeau-d'aussigny.md
+
+[80]: die-ballade-von-den-schoenen-frauen-von-paris.md
+
+[82]: die-ballade-von-den-drei-coquillards.md
+
+[84]: die-ballade-vom-wohlergehn.md
+
+[86]: die-ballade-an-den-koenig.md
+
+[89]: die-ballade-von-der-klempnersfrau.md
+
+[92]: die-ballade-einem-barbier.md
+
+[95]: ballade-von-dem-maedchen,-die-keinen-mann-mehr-finden.md
+
+[98]: die-ballade-an-den-herzog-von-burgund.md
+
+[100]: die-ballade-von-der-unzufriedenheit.md
+
+[102]: die-liebesballade-fuer-leylah.md
+
+[104]: die-zuhaelterballade.md
+
+[106]: die-raeuberballade.md
+
+[108]: das-kleine-testament.md
+
+[113]: die-bettelballade-fuer-jean-cotart.md
+
+[115]: vierzeiler.md
+
+[116]: appell-an-den-reichstag.md
+
+[118]: die-ballade-von-den-galgenbruedern.md
+
+[120]: kleine-ballade-von-der-maeusefrau.md
+
+[122]: die-galgenballade.md
+
+[125]: ballade-um-verzeihung.md
+
+[127]: die-marienballade.md
+
+[129]: das-große-testament.md
+
+[146]: nachschrift-mein-begraebnis-betreffend.md
+
+[148]: grabgebet.md
+
+[149]: kleine-bibliographie.md
+
