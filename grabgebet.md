@@ -1,7 +1,7 @@
 # Grabgebet
 
 <a name="148"></a>
-## Notwendige Anweiſubf, <br />welches Gebet ihr an meinem Grabe zu sprechen habt:
+## Notwendige Anweiſung, <br />welches Gebet ihr an meinem Grabe zu sprechen habt:
 
 ¶ Geht bitte nicht vorüber hier an diesem Ort  
 und legt bei euren Heiligen ein gutes Wort  
