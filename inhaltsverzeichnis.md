@@ -70,7 +70,7 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [75]: die-ballade-von-der-schoenen-stadt-moorah.md
 
-[77]: eine-kleine-liebesballade-fuer-jeanne-cul-de-quée.md
+[77]: eine-kleine-liebesballade-fuer-jeanne-cul-de-quee.md
 
 [78]: eine-verliebte-ballade-fuer-ysabeau-d'aussigny.md
 
