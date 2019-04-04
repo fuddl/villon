@@ -54,7 +54,7 @@ Die mit dem \* bezeichnetten Balladen sind dem „Jardin de Plaiance“ u. a. gl
 
 [60]: die-sommerballade.md "Die Sommerballade"
 
-[62]: eine-trauerballade-fuer-cylaea.md "Eine Trauer-Ballade um meine treuloſe Freundin Cylaea"
+[62]: eine-trauerballade-fuer-cylaea.md "Eine Trauer-Ballade um meine treulose Freundin Cylaea"
 
 [64]: die-ballade-von-den-drei-landsstreichern.md "Die Ballade von den drei Landsstreichern"
 
