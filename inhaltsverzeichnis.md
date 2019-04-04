@@ -34,7 +34,7 @@
 |      | [Die Bettelballade für Jean Cotart][113]                   | [113] |
 |      | [Vierzeiler][115]                                          | [115] |
 |      | [Appell an den Reichstag][116]                             | [116] |
-|      | [Die Ballade von den Galgenbrüdern][108]                   | [118] |
+|      | [Die Ballade von den Galgenbrüdern][118]                   | [118] |
 | [\*] | [Kleine Ballade von der Mäusefrau][120]                    | [120] |
 |      | [Die Galgenballade][122]                                   | [122] |
 |      | [Ballade um Verzeihung][125]                               | [125] |
