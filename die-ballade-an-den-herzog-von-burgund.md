@@ -3,7 +3,7 @@
 <a name="98"></a>
 ## Eine nette kleine Ballabe,<br/>die Meister villon, als er dringend Geld brauchte,<br/> dem serzog von Burgund überreichen ließ :
 
-… mein sehr verehrter Landesherr ‒: zuvor  
+… mein sehr verehrter Landesherr —: zuvor  
 ergebenen Gruß. Ich bin zwar kein berühmter Mohr,  
 kein Kardinal und kein Minister, oder so.  
 Ich heiße kurz: VILLON. Mein Weib geht auf den Strich  
