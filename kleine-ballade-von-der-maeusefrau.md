@@ -21,7 +21,7 @@ Die kleinen rosa Schnauzen piepsten da so nett
 daß ich sie zu mir nahm ins warme Bett
 
 ¶ Mein Gott, die lütten Dinger, noch ganz nackt  
-und auch noch blind dabei- mich hat das Elend so gepackt,  
+und auch noch blind dabei —: mich hat das Elend so gepackt,  
 daß mir was Nasses in die Augen kam.  
 Dabei hat manches Weib von mir  
 so unverhofft, wie dieses Mausetier  
