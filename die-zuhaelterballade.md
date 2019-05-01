@@ -1,6 +1,6 @@
 # Die Zuhälterballade
 <a name="104"></a>
-## Die Zuhälter-Ballade <br />von villon und seiner dicken Margot
+## Die Zuhälter-Ballade <br />von Villon und seiner dicken Margot
 
 ¶ Da regen sich die Menschen auf, weil ich  
 mit einem Mädchen geh, das sich vom Strich  
